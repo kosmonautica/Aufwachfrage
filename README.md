@@ -1201,4 +1201,4 @@ Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
 |28.12.2016|#Aufwachfrage: Wie müsste ein neuer #Heiland sein, damit du ihm folgst?|[Twitter](http://twitter.com/udowiegaertner/statuses/814010577093791744)|
 |27.12.2016|#Aufwachfrage: Warum ist es gut, dass Weihnachten endlich vorbei ist?|[Twitter](http://twitter.com/udowiegaertner/statuses/813648162296578048)|
 
-|Work in progress. To be continued...| | |
+|Work in progress. Die noch älteren Aufwachfragen bis ca. Dezember 2015 fehlen noch und werden hoffentlich bald ergänzt ...| | |
