@@ -255,15 +255,12 @@ Diese Seite sammelt die täglichen Aufwachfragen, die [@UdoWiegaertner](https://
 |30.12.2020|#Aufwachfrage: Wo hindert dich deine #Moral?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1344195854513672194)|
 |29.12.2020|#Aufwachfrage: Wie war dein #Weihnachten im Vergleich zu den Vorjahren?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1343830561375346690)|
 |24.12.2020|Die #Aufwachfrage macht ein paar Tage Weihnachtspause. Ich wünsche euch eine achtsame und virenfreie Zeit. Danke fü… https://t.co/xbVCfmkg8C|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1342007631016321024)|
-|23.12.2020|#Aufwachfrage: Was hast du bislang an Positivem aus der #Pandemie gezogen?
-(Danke für die Frage und das Hashtag… https://t.co/eZ3z6lSFZK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1341647270073274368)|
+|23.12.2020|#Aufwachfrage: Was hast du bislang an Positivem aus der #Pandemie gezogen?<br/>(Danke für die Frage und das Hashtag… https://t.co/eZ3z6lSFZK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1341647270073274368)|
 |22.12.2020|#Aufwachfrage: Wie wird sich die Anzahl der Menschen mit dem Job-Titel #AgileCoach in Unternehmen den nächsten 5 Ja… https://t.co/7rd2bmuXHU|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1341284858069479424)|
 |21.12.2020|#Aufwachfrage: Welchen deiner wichtigen #Glaubenssätze hast du in deinem Erwachsenenleben über Bord geworfen, weil… https://t.co/fMJVKoNAaG|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1340922501505888256)|
 |21.12.2020|#Aufwachfrage: Welchen deiner wichtigen #Glaubenssätze hast du in deinem Erwachsenenleben über Bord geworfen, weil… https://t.co/fMJVKoNAaG|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1340922501505888256)|
-|18.12.2020|#Aufwachfrage: Was möchtest du jeden Tag im #Überfluss erleben?
-(Danke für die Frage an @NadineWolfHH, @henningwolf… https://t.co/PAwRk6LAL5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1339835311728291841)|
-|18.12.2020|#Aufwachfrage: Was möchtest du jeden Tag im #Überfluss erleben?
-(Danke für die Frage an @NadineWolfHH, @henningwolf… https://t.co/PAwRk6LAL5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1339835311728291841)|
+|18.12.2020|#Aufwachfrage: Was möchtest du jeden Tag im #Überfluss erleben?<br/>(Danke für die Frage an @NadineWolfHH, @henningwolf… https://t.co/PAwRk6LAL5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1339835311728291841)|
+|18.12.2020|#Aufwachfrage: Was möchtest du jeden Tag im #Überfluss erleben?<br/>(Danke für die Frage an @NadineWolfHH, @henningwolf… https://t.co/PAwRk6LAL5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1339835311728291841)|
 |17.12.2020|#Aufwachfrage: Was an deinem Verhalten führt immer mal wieder zu Missverständnissen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1339488807360622592)|
 |16.12.2020|#Aufwachfrage: Welche zwei sich widersprechenden Wahrheiten sind in deiner Welt gleichzeitig wahr?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1339096524568064002)|
 |15.12.2020|#Aufwachfrage: Was waren die Gründe, warum du die letzten Male Tweets gelöscht hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1338750590432710657)|
@@ -282,51 +279,37 @@ Diese Seite sammelt die täglichen Aufwachfragen, die [@UdoWiegaertner](https://
 |26.11.2020|#Aufwachfrage: Was ist dein Tipp, um in pandemischen Zeiten die Beziehung zu den Menschen in deinem beruflichen Net… https://t.co/GosHCvaEEy|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1331858001620324352)|
 |26.11.2020|#Aufwachfrage: Was ist dein Tipp, um in pandemischen Zeiten die Beziehung zu den Menschen in deinem beruflichen Net… https://t.co/GosHCvaEEy|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1331858001620324352)|
 |25.11.2020|#Aufwachfrage: Was war ein #MagicMoment, den du bei einer Konferenz erlebt hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1331497416890195968)|
-|24.11.2020|#Aufwachfrage: Welche Möglichkeiten und Ideen lassen wir noch ungenutzt, wenn Konferenzen jetzt zu 100% #Remote stattfinden?
-#ma2020aha|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1331131631357353985)|
+|24.11.2020|#Aufwachfrage: Welche Möglichkeiten und Ideen lassen wir noch ungenutzt, wenn Konferenzen jetzt zu 100% #Remote stattfinden?<br/>#ma2020aha|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1331131631357353985)|
 |23.11.2020|#Aufwachfrage: Wenn du Professor*in werden könntest, welches Fachgebiet würdest du erforschen wollen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1330775640413442049)|
 |23.11.2020|#Aufwachfrage: Wenn du Professor*in werden könntest, welches Fachgebiet würdest du erforschen wollen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1330775640413442049)|
-|20.11.2020|#Aufwachfrage: Was musst du nicht?
-(inspiriert durch den Song ""Ich muss gar nix"" von @GSGF /… https://t.co/eaolkON1Kh|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1329681833412288512)|
+|20.11.2020|#Aufwachfrage: Was musst du nicht?<br/>(inspiriert durch den Song "Ich muss gar nix" von @GSGF /… https://t.co/eaolkON1Kh|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1329681833412288512)|
 |19.11.2020|#Aufwachfrage: Ist die #Polizei dein Freund und Helfer?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1329319141493321729)|
-|18.11.2020|#Aufwachfrage: Wie sollte dieser Satz enden?
-„Wenn wir es geschafft haben, Menschen zum Mond zu bringen, dann werde… https://t.co/dsJf0t6NR1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1328952888966737923)|
-|17.11.2020|#Aufwachfrage: Kann man ohne #Disziplin erfolgreich sein?
-(Diese Frage von Olli Speed haben wir gestern beim… https://t.co/N6XkfCX1Bx|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1328594181950992390)|
-|16.11.2020|#Aufwachfrage: Wie lernt ihr als Team?
-(inspiriert durch ""The Fifth Dicipline"" by @petersenge) https://t.co/NK9xERw9Hc|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1328238957054857217)|
+|18.11.2020|#Aufwachfrage: Wie sollte dieser Satz enden?<br/>„Wenn wir es geschafft haben, Menschen zum Mond zu bringen, dann werde… https://t.co/dsJf0t6NR1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1328952888966737923)|
+|17.11.2020|#Aufwachfrage: Kann man ohne #Disziplin erfolgreich sein?<br/>(Diese Frage von Olli Speed haben wir gestern beim… https://t.co/N6XkfCX1Bx|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1328594181950992390)|
+|16.11.2020|#Aufwachfrage: Wie lernt ihr als Team?<br/>(inspiriert durch "The Fifth Dicipline" by @petersenge) https://t.co/NK9xERw9Hc|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1328238957054857217)|
 |13.11.2020|#Aufwachfrage: In welcher Situation kollidiert das Kind in dir am heftigsten mit dem Erwachsenen in dir?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1327154216209686528)|
 |11.11.2020|#Aufwachfrage: Warum #vertrauen nicht einfach alle allen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1326423064293335040)|
 |11.11.2020|#Aufwachfrage: Warum #vertrauen nicht einfach alle allen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1326423064293335040)|
-|10.11.2020|#Aufwachfrage: Wie erkennt man den richtigen Moment?
-#kairos|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1326051499642937344)|
+|10.11.2020|#Aufwachfrage: Wie erkennt man den richtigen Moment?<br/>#kairos|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1326051499642937344)|
 |09.11.2020|#Aufwachfrage: Bittest du um das, was du willst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1325702553498161153)|
 |06.11.2020|#Aufwachfrage: Wie müsste die Vision/der Slogan für eure Firma lauten, damit er in 500 Jahren noch Gültigkeit hat?… https://t.co/bdDCg2wKEC|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1324615019967991809)|
 |05.11.2020|#Aufwachfrage: Woran erkennst du, dass du verloren hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1324252636875542529)|
-|04.11.2020|#Aufwachfrage: Was raubt dir die Energie, obwohl es eigentlich welche spenden sollte?
-#Energieräuber 
-https://t.co/xC8wEZgZgI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1323890267112546304)|
+|04.11.2020|#Aufwachfrage: Was raubt dir die Energie, obwohl es eigentlich welche spenden sollte?<br/>#Energieräuber <br/>https://t.co/xC8wEZgZgI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1323890267112546304)|
 |03.11.2020|#Aufwachfrage: Is your digital world in #LightMode or #DarkMode?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1323527887648153602)|
 |02.11.2020|#Aufwachfrage: Was wünschst du dir von dem Menschen, der diese Woche zum Präsidenten der USA gewählt werden wird?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1323165500071882754)|
 |30.10.2020|#Aufwachfrage: Wodurch wirst du nächste Woche die neuen Maßnahmen gegen #Corona vermutlich am deutlichsten in deinem Leben spüren?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1322078283777921024)|
 |29.10.2020|#Aufwachfrage: Glaubst du #Lob?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1321715987381735424)|
 |28.10.2020|#Aufwachfrage: Reicht es mittlerweile eigentlich mit Aufwachfragen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1321353583959384064)|
-|27.10.2020|#Aufwachfrage: Wenn du dich selbst parodieren solltest, welches deiner Merkmale würdest du betonen?
-(Danke für die Frage an @DIEZEIT)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1320991167807455234)|
+|27.10.2020|#Aufwachfrage: Wenn du dich selbst parodieren solltest, welches deiner Merkmale würdest du betonen?<br/>(Danke für die Frage an @DIEZEIT)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1320991167807455234)|
 |26.10.2020|#Aufwachfrage: Bist du manchmal ein #Blockwart?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1320628808760872960)|
 |24.10.2020|#Aufwachfrage: Wer (außer dir selber) hat diese Woche dazu beigetragen, dass es dir gut geht? https://t.co/fMfxsfOYMw|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1319895873392967682)|
-|23.10.2020|#Aufwachfrage: Was ist deine Definition von ""gesunder Menschenverstand""?
----
-(inspiriert durch ein sehr faszinieren… https://t.co/WtQZfNsdeP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1319526520403222528)|
-|22.10.2020|#Aufwachfrage Muss dein/e Chef*in in irgendwas besser sein als du, damit du sie/ihm als Führungskraft akzeptierst?
-#leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1319164155493027840)|
-|21.10.2020|#Aufwachfrage: Woran merkst du, dass du jemandem _wirklich_ vergeben hast?
-#Vergebung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1318801694176759809)|
+|23.10.2020|#Aufwachfrage: Was ist deine Definition von "gesunder Menschenverstand"?<br/>---<br/>(inspiriert durch ein sehr faszinieren… https://t.co/WtQZfNsdeP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1319526520403222528)|
+|22.10.2020|#Aufwachfrage Muss dein/e Chef*in in irgendwas besser sein als du, damit du sie/ihm als Führungskraft akzeptierst?<br/>#leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1319164155493027840)|
+|21.10.2020|#Aufwachfrage: Woran merkst du, dass du jemandem _wirklich_ vergeben hast?<br/>#Vergebung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1318801694176759809)|
 |20.10.2020|#Aufwachfrage: Welche #Emotion zeigst du mutmaßlich am häufigsten  im Job?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1318439335759405057)|
 |19.10.2020|#Aufwachfrage: In welchen Bereichen würdest du von #ReverseMentoring durch jüngere Kolleg*innen am meisten profitieren?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1318076940235005952)|
 |16.10.2020|(Späte) #Aufwachfrage: Hast du schon mal ein zwischenmenschliches Problem via Email lösen können?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1317046875405635584)|
-|15.10.2020|#Aufwachfrage: Wie beeinflusst die Anwesenheit von Menschen des Upper Management die Dynamik eurer #Meetings?
-(insp… https://t.co/id9jNIr8kq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1316625335149043712)|
+|15.10.2020|#Aufwachfrage: Wie beeinflusst die Anwesenheit von Menschen des Upper Management die Dynamik eurer #Meetings?<br/>(insp… https://t.co/id9jNIr8kq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1316625335149043712)|
 |14.10.2020|#Aufwachfrage: An welchen Stellen brichst du jetzt schon althergebrachte Geschlechter-Klischees?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1316265021496791040)|
 |13.10.2020|#Aufwachfrage: Wie gut hältst du #Applaus aus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1315902591935672325)|
 |12.10.2020|#Aufwachfrage: Wenn deine Firma ein Zirkus wäre, mit welcher Nummer trätest du auf?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1315540325608325120)|
@@ -337,40 +320,28 @@ https://t.co/xC8wEZgZgI|[Twitter URL](http://twitter.com/udowiegaertner/statuses
 |06.10.2020|#Aufwachfrage: Bist du milde mit dir?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1313365889706872832)|
 |05.10.2020|#Aufwachfrage: Würdest du die Gehaltsliste der ganzen Firma (inkl. Top-Management) anschauen, wenn du sie ungeschüt… https://t.co/IDWtUDQJH8|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1313003539027898368)|
 |03.10.2020|#Samstagsfrage / #Aufwachfrage: Kann man glücklich sein, ohne zufrieden zu sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1312305542631755777)|
-|02.10.2020|#Aufwachfrage: Wie vervollständigst du
-""Ich bin glücklich, weil...""?
-(Danke an @ArminSchubert)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1311916393529585664)|
+|02.10.2020|#Aufwachfrage: Wie vervollständigst du<br/>"Ich bin glücklich, weil..."?<br/>(Danke an @ArminSchubert)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1311916393529585664)|
 |01.10.2020|#Aufwachfrage: Was hättest du als #Moderator der #PresidentialDebate vom Dienstag zwischen #Trump und #Biden getan,… https://t.co/m3pLQTXkwS|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1311554018120994817)|
-|30.09.2020|#Aufwachfrage: Wann hast du zuletzt einen von dir handgeschriebenen Brief verschickt?
-(Danke für die Frage an @Agile_Network)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1311191631207559169)|
+|30.09.2020|#Aufwachfrage: Wann hast du zuletzt einen von dir handgeschriebenen Brief verschickt?<br/>(Danke für die Frage an @Agile_Network)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1311191631207559169)|
 |29.09.2020|#Aufwachfrage: Wie sehr vermischst du deine private und deine berufliche Blase auf #SocialMedia (vor allem auch andere als Twitter)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1310829186853068800)|
 |28.09.2020|#Aufwachfrage: Welche kleine oder große #Katastrophe in deinem Leben, die du befürchtest hast, ist zum Glück nicht eingetreten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1310466837918949376)|
 |25.09.2020|#Aufwachfrage: In wie viel Prozent deiner Online-Meetings der letzten 5 Arbeitstage hast du insgeheim nebenbei etwa… https://t.co/C1tJLSdUFF|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1309379609083904000)|
 |24.09.2020|#Aufwachfrage: Worüber hast du kürzlich gestaunt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1309017274674806786)|
 |23.09.2020|#Aufwachfrage: Was würdest du als Grundschullehrer*in innerhalb der ersten Schulwoche auf jeden Fall mit deiner 1.… https://t.co/kLAbeo2xct|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1308654833306656768)|
 |22.09.2020|#Aufwachfrage: Was ist dein Ninja-Trick, um dich beim Anruf bei Kundendienst-/Service-Nummern nicht machtlos zu fühlen mit deinem Anliegen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1308315519322329088)|
-|21.09.2020|#Aufwachfrage: Was ist für Euch der Unterschied zwischen den Werten „#Respekt“ und „#Wertschätzung“?
-(Danke für die… https://t.co/uNTx6DGQC1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1307930057130860546)|
+|21.09.2020|#Aufwachfrage: Was ist für Euch der Unterschied zwischen den Werten „#Respekt“ und „#Wertschätzung“?<br/>(Danke für die… https://t.co/uNTx6DGQC1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1307930057130860546)|
 |18.09.2020|#Aufwachfrage: Was in deinem beruflichen Umfeld wird wie ein #Fakt behandelt, obwohl es bestenfalls eine #Hypothese ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1306842948315820034)|
 |17.09.2020|#Aufwachfrage: Wann hast du dich zuletzt mitten im #ImpostorSyndrome ertappt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1306480558076243968)|
 |16.09.2020|#Aufwachfrage: Welche exzentrische Eigenart gestattest du dir selber?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1306118745807560705)|
 |15.09.2020|#Aufwachfrage: Wie viele Einladungen zu #Meetings hast du letzte Woche abgelehnt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1305755746521489408)|
-|15.09.2020|#Aufwachfrage: Wozu machst du einen eigenen #Podcast?
-
-Die Frage geht z.B. an @timothep @geraederter_dan… https://t.co/JzUSdPz47J|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1305750511342292992)|
-|14.09.2020|#Aufwachfrage: Wie flexibel bist du?
-(inspiriert durch @ba2019)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1305393397163794433)|
-|14.09.2020|#Aufwachfrage: Wie flexibel bist du?
-(inspiriert durch @ba2019)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1305393397163794433)|
-|11.09.2020|#Aufwachfrage: In welchen Aspekten bist du ja vielleicht doch etwas ""Theorie X""?
-#theorieX #TheoryX #DouglasMcGregor|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1304306245327818772)|
-|10.09.2020|@new_shit_ag Absolut einverstanden. No hard feelings.
-Die #Aufwachfrage soll tatsächlich manchmal provozieren, manc… https://t.co/hzRt7FnbIj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1304022542093627393)|
-|10.09.2020|@new_shit_ag Absolut einverstanden. No hard feelings.
-Die #Aufwachfrage soll tatsächlich manchmal provozieren, manc… https://t.co/hzRt7FnbIj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1304022542093627393)|
+|15.09.2020|#Aufwachfrage: Wozu machst du einen eigenen #Podcast?<br/><br/>Die Frage geht z.B. an @timothep @geraederter_dan… https://t.co/JzUSdPz47J|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1305750511342292992)|
+|14.09.2020|#Aufwachfrage: Wie flexibel bist du?<br/>(inspiriert durch @ba2019)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1305393397163794433)|
+|14.09.2020|#Aufwachfrage: Wie flexibel bist du?<br/>(inspiriert durch @ba2019)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1305393397163794433)|
+|11.09.2020|#Aufwachfrage: In welchen Aspekten bist du ja vielleicht doch etwas "Theorie X"?<br/>#theorieX #TheoryX #DouglasMcGregor|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1304306245327818772)|
+|10.09.2020|@new_shit_ag Absolut einverstanden. No hard feelings.<br/>Die #Aufwachfrage soll tatsächlich manchmal provozieren, manc… https://t.co/hzRt7FnbIj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1304022542093627393)|
+|10.09.2020|@new_shit_ag Absolut einverstanden. No hard feelings.<br/>Die #Aufwachfrage soll tatsächlich manchmal provozieren, manc… https://t.co/hzRt7FnbIj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1304022542093627393)|
 |10.09.2020|#Aufwachfrage: Bist du erschöpft?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1303940421706539009)|
-|09.09.2020|@Agile_Network Ich merke grad, ich hab das Hashtag #Aufwachfrage vergessen für die Frage heute: 
-Wodurch sollten di… https://t.co/diARKJDVyk|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1303705673033756672)|
+|09.09.2020|@Agile_Network Ich merke grad, ich hab das Hashtag #Aufwachfrage vergessen für die Frage heute: <br/>Wodurch sollten di… https://t.co/diARKJDVyk|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1303705673033756672)|
 |08.09.2020|#Aufwachfrage: Welchen Rat würdest du deinem früheren Schulanfänger-Ich zum ersten Schultag geben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1303219060046532609)|
 |07.09.2020|#Aufwachfrage: Was bedeutet #Streiten für dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1302856681143939072)|
 |04.09.2020|#Aufwachfrage: Mit welchen Argumenten würdest du bei deinem Management für #PlayfulLearning bzw #SeriousPlay werben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1301760728341327872)|
@@ -384,16 +355,11 @@ Wodurch sollten di… https://t.co/diARKJDVyk|[Twitter URL](http://twitter.com/u
 |28.08.2020|#Aufwachfrage: Welche #Bücher sollten in der Bibliothek der Entwicklungsabteilung eines mittelständischen Softwareh… https://t.co/iSqhADaIqu|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1299232751380582401)|
 |27.08.2020|#Aufwachfrage: Welches Verhältnis hast du zu deinen #Dämonen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1298870383320367105)|
 |26.08.2020|8/9 Der Anstoß zu dieser #Aufwachfrage war übrigens ein langes Interview mit der wundervollen Autorin #JuliZeh im… https://t.co/fnWjPNt3Fk|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1298701274549030912)|
-|26.08.2020|#Aufwachfrage: Vor wem schützt du deine Daten?
-#Datenschutz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1298507976307769346)|
-|26.08.2020|#Aufwachfrage: Vor wem schützt du deine Daten?
-#Datenschutz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1298507976307769346)|
+|26.08.2020|#Aufwachfrage: Vor wem schützt du deine Daten?<br/>#Datenschutz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1298507976307769346)|
+|26.08.2020|#Aufwachfrage: Vor wem schützt du deine Daten?<br/>#Datenschutz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1298507976307769346)|
 |25.08.2020|#Aufwachfrage: Würdest du dich in einem Gespräch mit einem Menschen, der ganz offensichtlich ganz viel klüger ist a… https://t.co/t6rZ7oHPls|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1298145588089892864)|
-|24.08.2020|#Aufwachfrage: Sollte man etwas #wollen?
----
-(inspiriert durch den Song ""Wir müssen nur wollen"" von @WirsSindHelden… https://t.co/Lp8YTyJ7IW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1297783224681332737)|
-|21.08.2020|#Aufwachfrage: Was sind deine #Sehnsuchsorte?
-(inspiriert durch das Titelthema von @DIEZEIT Magazin)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1296696035369156610)|
+|24.08.2020|#Aufwachfrage: Sollte man etwas #wollen?<br/>---<br/>(inspiriert durch den Song "Wir müssen nur wollen" von @WirsSindHelden… https://t.co/Lp8YTyJ7IW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1297783224681332737)|
+|21.08.2020|#Aufwachfrage: Was sind deine #Sehnsuchsorte?<br/>(inspiriert durch das Titelthema von @DIEZEIT Magazin)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1296696035369156610)|
 |20.08.2020|#Aufwachfrage: Was tust du regelmäßig, obwohl es völlig irrational ist?￼|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1296341913516343298)|
 |19.08.2020|#Aufwachfrage: Woran erinnerst du dich beim Begriff #WorstJob?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1295971323953516544)|
 |18.08.2020|#Aufwachfrage: Woran erinnerst du dich beim Begriff #FirstJob?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1295608873508835328)|
@@ -402,12 +368,8 @@ Wodurch sollten di… https://t.co/diARKJDVyk|[Twitter URL](http://twitter.com/u
 |17.08.2020|#Aufwachfrage: Was macht ein gutes Leben aus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1295246517377400832)|
 |14.08.2020|#Aufwachfrage: Wodurch unterscheidet sich deine Twitter-Persöhnlichkeit von der außerhalb von #SocialMedia?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1294175174921723904)|
 |13.08.2020|#Aufwachfrage: Was ist das kontroverseste Statement, das du gerade noch so auf Twitter zu schreiben wagst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1293798629321433088)|
-|12.08.2020|#Aufwachfrage: Gibt es ein Recht auf #Unvernunft, auch wenn sie ansteckend sein könnte?
----
-(inspiriert durch einen… https://t.co/aHha5wR4cK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1293435410366918657)|
-|12.08.2020|#Aufwachfrage: Gibt es ein Recht auf #Unvernunft, auch wenn sie ansteckend sein könnte?
----
-(inspiriert durch einen… https://t.co/aHha5wR4cK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1293435410366918657)|
+|12.08.2020|#Aufwachfrage: Gibt es ein Recht auf #Unvernunft, auch wenn sie ansteckend sein könnte?<br/>---<br/>(inspiriert durch einen… https://t.co/aHha5wR4cK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1293435410366918657)|
+|12.08.2020|#Aufwachfrage: Gibt es ein Recht auf #Unvernunft, auch wenn sie ansteckend sein könnte?<br/>---<br/>(inspiriert durch einen… https://t.co/aHha5wR4cK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1293435410366918657)|
 |11.08.2020|#Aufwachfrage: Woran merkst du, dass du jemanden inspiriert hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1293079585052135425)|
 |10.08.2020|#Aufwachfrage: Wie sehr ist #Bodyshaming bei dir selber ein Thema?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1292715788869275649)|
 |10.08.2020|#Aufwachfrage: Wie sehr ist #Bodyshaming bei dir selber ein Thema?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1292715788869275649)|
@@ -415,18 +377,13 @@ Wodurch sollten di… https://t.co/diARKJDVyk|[Twitter URL](http://twitter.com/u
 |06.08.2020|#Aufwachfrage: Wenn du eine Gottheit wärst, was wäre dein #MissionStatement?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1291260220379979776)|
 |06.08.2020|#Aufwachfrage: Wenn du eine Gottheit wärst, was wäre dein #MissionStatement?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1291260220379979776)|
 |05.08.2020|#Aufwachfrage: Wie wichtig ist dir #Ehre?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1290897891788312576)|
-|04.08.2020|#Aufwachfrage: Was wird wohl dein geistiges #Testament werden?
-(danke für die Frage an @ba2019, der durch einen Art… https://t.co/nZtK1AF3dl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1290535439607255040)|
+|04.08.2020|#Aufwachfrage: Was wird wohl dein geistiges #Testament werden?<br/>(danke für die Frage an @ba2019, der durch einen Art… https://t.co/nZtK1AF3dl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1290535439607255040)|
 |03.08.2020|#Aufwachfrage: Welchen deiner Glaubenssätze hältst du noch immer am Leben, auch wenn er, von außen betrachtet, scho… https://t.co/CVJL41c7Je|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1290173103591415810)|
 |03.08.2020|#Aufwachfrage: Welchen deiner Glaubenssätze hältst du noch immer am Leben, auch wenn er, von außen betrachtet, scho… https://t.co/CVJL41c7Je|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1290173103591415810)|
 |31.07.2020|#Aufwachfrage: Wie einsehbar ist dein #Outlook-Kalender für deine Kolleg*innen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1289085897712046081)|
 |31.07.2020|#Aufwachfrage: Wie einsehbar ist dein #Outlook-Kalender für deine Kolleg*innen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1289085897712046081)|
-|30.07.2020|#Aufwachfrage: Was ist dein Kniff, um selber nicht zu #verkopft zu werden?
----
-(inspiriert durch das gestrige… https://t.co/o5zwXqZNp0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1288723564250779648)|
-|30.07.2020|#Aufwachfrage: Was ist dein Kniff, um selber nicht zu #verkopft zu werden?
----
-(inspiriert durch das gestrige… https://t.co/o5zwXqZNp0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1288723564250779648)|
+|30.07.2020|#Aufwachfrage: Was ist dein Kniff, um selber nicht zu #verkopft zu werden?<br/>---<br/>(inspiriert durch das gestrige… https://t.co/o5zwXqZNp0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1288723564250779648)|
+|30.07.2020|#Aufwachfrage: Was ist dein Kniff, um selber nicht zu #verkopft zu werden?<br/>---<br/>(inspiriert durch das gestrige… https://t.co/o5zwXqZNp0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1288723564250779648)|
 |29.07.2020|#Aufwachfrage: Wenn du heute, spontan und ohne Vorbereitung, eine Session auf einen #OpenSpace anbieten würdest, wa… https://t.co/vIZk1tJ8vM|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1288361161554001920)|
 |29.07.2020|#Aufwachfrage: Wenn du heute, spontan und ohne Vorbereitung, eine Session auf einen #OpenSpace anbieten würdest, wa… https://t.co/vIZk1tJ8vM|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1288361161554001920)|
 |28.07.2020|#Aufwachfrage: Welchen Nutzen haben (analoge) Visitenkarten noch für dich? https://t.co/NxkcF5SYBA|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1287998781238149120)|
@@ -445,34 +402,25 @@ Wodurch sollten di… https://t.co/diARKJDVyk|[Twitter URL](http://twitter.com/u
 |13.07.2020|#Aufwachfrage: Woran erkennt man eine mentale Pandemie?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1282567600183169025)|
 |10.07.2020|Danke, @nadrealista. Dein Tweet hat mich offenbar so zum Nachdenken gebracht, dass ich die #Aufwachfrage heute verg… https://t.co/E1IcSxfqzJ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1281552443541803015)|
 |10.07.2020|Danke, @nadrealista. Dein Tweet hat mich offenbar so zum Nachdenken gebracht, dass ich die #Aufwachfrage heute verg… https://t.co/E1IcSxfqzJ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1281552443541803015)|
-|09.07.2020|#Aufwachfrage: Was ist dein Trick,  um #PowerPoint in Präsentationen besser zu nutzen?
-(PowerPoint-Trolling darf fü… https://t.co/pafSKuybB6|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1281110689428504579)|
-|09.07.2020|#Aufwachfrage: Was ist dein Trick,  um #PowerPoint in Präsentationen besser zu nutzen?
-(PowerPoint-Trolling darf fü… https://t.co/pafSKuybB6|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1281110689428504579)|
-|08.07.2020|#Aufwachfrage / #GetAwakeQuestion:  How to gently kill good ideas so that great ideas might live?
-(inspired by a co… https://t.co/Ac58crXrXK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1280750981660266497)|
-|08.07.2020|#Aufwachfrage / #GetAwakeQuestion:  How to gently kill good ideas so that great ideas might live?
-(inspired by a co… https://t.co/Ac58crXrXK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1280750981660266497)|
+|09.07.2020|#Aufwachfrage: Was ist dein Trick,  um #PowerPoint in Präsentationen besser zu nutzen?<br/>(PowerPoint-Trolling darf fü… https://t.co/pafSKuybB6|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1281110689428504579)|
+|09.07.2020|#Aufwachfrage: Was ist dein Trick,  um #PowerPoint in Präsentationen besser zu nutzen?<br/>(PowerPoint-Trolling darf fü… https://t.co/pafSKuybB6|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1281110689428504579)|
+|08.07.2020|#Aufwachfrage / #GetAwakeQuestion:  How to gently kill good ideas so that great ideas might live?<br/>(inspired by a co… https://t.co/Ac58crXrXK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1280750981660266497)|
+|08.07.2020|#Aufwachfrage / #GetAwakeQuestion:  How to gently kill good ideas so that great ideas might live?<br/>(inspired by a co… https://t.co/Ac58crXrXK|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1280750981660266497)|
 |07.07.2020|#Aufwachfrage: Wofür machst du das alles eigentlich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1280388582360985600)|
 |06.07.2020|#Aufwachfrage: Wie lange liest du am Stück?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1280026191924166659)|
-|03.07.2020|#Aufwachfrage: Welche beiden Städte bilden dein Duo für 
-a) ""Warum lästern so viele über diese Stadt, ich finde sie… https://t.co/y3l4JtFJPj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1278937917247946752)|
-|03.07.2020|#Aufwachfrage: Welche beiden Städte bilden dein Duo für 
-a) ""Warum lästern so viele über diese Stadt, ich finde sie… https://t.co/y3l4JtFJPj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1278937917247946752)|
+|03.07.2020|#Aufwachfrage: Welche beiden Städte bilden dein Duo für <br/>a) "Warum lästern so viele über diese Stadt, ich finde sie… https://t.co/y3l4JtFJPj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1278937917247946752)|
+|03.07.2020|#Aufwachfrage: Welche beiden Städte bilden dein Duo für <br/>a) "Warum lästern so viele über diese Stadt, ich finde sie… https://t.co/y3l4JtFJPj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1278937917247946752)|
 |02.07.2020|#Aufwachfrage: Woran erkennst du einen guten Plan?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1278580232497348610)|
 |01.07.2020|#Aufwachfrage: Worauf glaubst du #Anspruch zu haben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1278214311261999104)|
 |30.06.2020|#Aufwachfrage: Worüber würdest du in deiner Rede sprechen, wenn dir die Abschlussrede vor #Harvard Absolvent*innen angeboten würde?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1277851892975009793)|
 |29.06.2020|#Aufwachfrage: Was hat heute deine Aufmerksamkeit?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1277489550596677634)|
 |26.06.2020|#Aufwachfrage: Wie geht es dir wirklich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1276402333858050050)|
-|25.06.2020|#Aufwachfrage: Wie sehr bist du mit deinem aktuellen #JobTitel im Reinen?
-(inspiriert durch einen Twitter-Austausch mit @joannazett)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1276039993878855680)|
+|25.06.2020|#Aufwachfrage: Wie sehr bist du mit deinem aktuellen #JobTitel im Reinen?<br/>(inspiriert durch einen Twitter-Austausch mit @joannazett)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1276039993878855680)|
 |24.06.2020|#Aufwachfrage: Welche Agenda/Formate würdest du zusammenstellen für die #Retro, die du für die Leader der G7-Staate… https://t.co/nhVGDP5WnZ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1275677363616055296)|
 |23.06.2020|#Aufwachfrage: Was ist für dich die wertvollste Eigenart des Homo Sapiens?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1275315161054748672)|
 |23.06.2020|#Aufwachfrage: Was ist für dich die wertvollste Eigenart des Homo Sapiens?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1275315161054748672)|
-|22.06.2020|#Aufwachfrage: Würdest du lieber lieben oder geliebt werden, wenn du nur eins von beiden haben könntest?
-(Ja, mir i… https://t.co/Rkckn4XiYP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1274952771758850048)|
-|19.06.2020|#Aufwachfrage: Können wir uns #Agilität in Zeiten der #Corona-Krise überhaupt noch leisten?
-(Danke für die Inspirat… https://t.co/Fdjl5axvVI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1273865623127363584)|
+|22.06.2020|#Aufwachfrage: Würdest du lieber lieben oder geliebt werden, wenn du nur eins von beiden haben könntest?<br/>(Ja, mir i… https://t.co/Rkckn4XiYP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1274952771758850048)|
+|19.06.2020|#Aufwachfrage: Können wir uns #Agilität in Zeiten der #Corona-Krise überhaupt noch leisten?<br/>(Danke für die Inspirat… https://t.co/Fdjl5axvVI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1273865623127363584)|
 |18.06.2020|#Aufwachfrage: Woran erkennst du die unentdeckten Erfinder*innen in deinem Unternehmen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1273503314865532928)|
 |17.06.2020|#Aufwachfrage: Wie würde eine Welt ohne Google aussehen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1273165367028994048)|
 |16.06.2020|#Aufwachfrage: Bist du gezähmt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1272807573050269696)|
@@ -485,22 +433,14 @@ a) ""Warum lästern so viele über diese Stadt, ich finde sie… https://t.co/y3
 |08.06.2020|#Aufwachfrage: Welche Personengruppe kriegt DEINEN #Rassismus am meisten ab? https://t.co/acOFMzi8bf|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1269876083542892544)|
 |08.06.2020|#Aufwachfrage: Welche Personengruppe kriegt DEINEN #Rassismus am meisten ab? https://t.co/acOFMzi8bf|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1269876083542892544)|
 |06.06.2020|#Aufwachfrage: Wagst du?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1269158928505544705)|
-|05.06.2020|#Aufwachfrage: Wie sieht der #Flow-Zustand eines #AgileCoach aus?
-(Danke für die Frage an @Criamon)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1268792222121590784)|
-|05.06.2020|#Aufwachfrage: Wie sieht der #Flow-Zustand eines #AgileCoach aus?
-(Danke für die Frage an @Criamon)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1268792222121590784)|
+|05.06.2020|#Aufwachfrage: Wie sieht der #Flow-Zustand eines #AgileCoach aus?<br/>(Danke für die Frage an @Criamon)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1268792222121590784)|
+|05.06.2020|#Aufwachfrage: Wie sieht der #Flow-Zustand eines #AgileCoach aus?<br/>(Danke für die Frage an @Criamon)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1268792222121590784)|
 |04.06.2020|#Aufwachfrage: Geht #Datensorgfalt auch ohne #Datensparsamkeit?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1268429808595349504)|
 |04.06.2020|#Aufwachfrage: Geht #Datensorgfalt auch ohne #Datensparsamkeit?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1268429808595349504)|
 |03.06.2020|#Aufwachfrage: Kann man begeistern ohne sich selber begeistern zu können?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1268064980378824705)|
-|02.06.2020|#Aufwachfrage: Welche einzelne Episode eines #Podcast fandest du überragend gut?
-
-(Bitte eine einzelne Folge und ke… https://t.co/SLTafxk8c1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1267705003873091585)|
-|01.06.2020|#Aufwachfrage: Sagst du 
-a) ""Ämasonn"" oder b)  ""Ammazohn"",
-sagst du
-c) ""Golden Delischass"" oder d) ""Golden Dehliziu… https://t.co/181Xl5g01r|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1267342665059840000)|
-|29.05.2020|#Aufwachfrage: Wie würdest du die #Rasse nennen, der du selber angehörst?
-(""Mensch"" mal ausgenommen)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1266255534568570893)|
+|02.06.2020|#Aufwachfrage: Welche einzelne Episode eines #Podcast fandest du überragend gut?<br/><br/>(Bitte eine einzelne Folge und ke… https://t.co/SLTafxk8c1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1267705003873091585)|
+|01.06.2020|#Aufwachfrage: Sagst du <br/>a) "Ämasonn" oder b)  "Ammazohn",<br/>sagst du<br/>c) "Golden Delischass" oder d) "Golden Dehliziu… https://t.co/181Xl5g01r|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1267342665059840000)|
+|29.05.2020|#Aufwachfrage: Wie würdest du die #Rasse nennen, der du selber angehörst?<br/>("Mensch" mal ausgenommen)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1266255534568570893)|
 |28.05.2020|@artundstil Ich benutze dazu das Hashtag #Aufwachfrage und twittere seit einigen Jahren jeden Morgen eine davon.|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1265926296749707264)|
 |28.05.2020|#Aufwachfrage: Gehst du bei Rot über die Ampel, wenn kein Verkehr kommt, obwohl andere Leute neben dir stehen (keine Kinder)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1265893119683432449)|
 |27.05.2020|#Aufwachfrage: Welcher Aspekt deines Jobs wird vermutlich nach dem #Corona #HomeOffice dauerhaft anders sein als vorher?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1265530742383263745)|
@@ -510,29 +450,20 @@ c) ""Golden Delischass"" oder d) ""Golden Dehliziu… https://t.co/181Xl5g01r|[T
 |21.05.2020|#Aufwachfrage: Sind #Organigramme (der Aufbauorganisation) in eurem Umfeld eher hilfreich oder eher hinderlich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1263356357295693824)|
 |20.05.2020|#Aufwachfrage: Was ist in deiner Organisation das sprichwörtliche #Klopapier, das Leute gerne auf Vorrat #hamstern,… https://t.co/q0325v8W1G|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1262983040105668613)|
 |20.05.2020|#Aufwachfrage: Was ist in deiner Organisation das sprichwörtliche #Klopapier, das Leute gerne auf Vorrat #hamstern,… https://t.co/q0325v8W1G|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1262983040105668613)|
-|19.05.2020|#Aufwachfrage: Wie kommunizierst du mit deinem inneren #Schweinehund?
-(inspiriert durch einen Vortrag über das Tage… https://t.co/4NNbWo6y0V|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1262605472718360577)|
-|18.05.2020|#Aufwachfrage: Was sind eure unentbehrlichsten Helfer im #HomeOffice?
-(Danke für die Frage an @MsWanken)
-https://t.co/wYZzSQ585s|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1262269262497853445)|
-|15.05.2020|#Aufwachfrage: Wie würde dein/e Partner*in bzw dein engster Mensch deine Verliebtheit in dein #Smartphone beschreiben?
-#fomo|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1261182094413312002)|
-|14.05.2020|#Aufwachfrage: Wie sähe es aus, wenn man ""zu soft"" im Job ist?
-(inspiriert vom sehr lesenswerten Buch ""No Hard Feel… https://t.co/jvqQI1aoHs|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1260819658690695169)|
+|19.05.2020|#Aufwachfrage: Wie kommunizierst du mit deinem inneren #Schweinehund?<br/>(inspiriert durch einen Vortrag über das Tage… https://t.co/4NNbWo6y0V|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1262605472718360577)|
+|18.05.2020|#Aufwachfrage: Was sind eure unentbehrlichsten Helfer im #HomeOffice?<br/>(Danke für die Frage an @MsWanken)<br/>https://t.co/wYZzSQ585s|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1262269262497853445)|
+|15.05.2020|#Aufwachfrage: Wie würde dein/e Partner*in bzw dein engster Mensch deine Verliebtheit in dein #Smartphone beschreiben?<br/>#fomo|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1261182094413312002)|
+|14.05.2020|#Aufwachfrage: Wie sähe es aus, wenn man "zu soft" im Job ist?<br/>(inspiriert vom sehr lesenswerten Buch "No Hard Feel… https://t.co/jvqQI1aoHs|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1260819658690695169)|
 |13.05.2020|#Aufwachfrage: Träumst du oft von Job-Themen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1260457266052042753)|
 |12.05.2020|#Aufwachfrage: Planst du manchmal Sachen, auch wenn du weißt, dass du den Plan niemals realisieren wirst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1260104066459410436)|
-|11.05.2020|#Aufwachfrage: Was tust du, wenn du nichts tust?
-(""Nichts"" als Antwort wäre zu einfach, oder?)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1259732479650521089)|
+|11.05.2020|#Aufwachfrage: Was tust du, wenn du nichts tust?<br/>("Nichts" als Antwort wäre zu einfach, oder?)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1259732479650521089)|
 |08.05.2020|#Aufwachfrage: Was ist der (inoffizielle) Default der Teilnehmenden für das Mikrofon in euren Online-Meetings -… https://t.co/wLlTVFMUPQ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1258645342679183361)|
 |07.05.2020|#Aufwachfrage: Ist dein Glas eher halb voll oder halb leer, wenn du an einen erfüllten Job denkst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1258282945066000384)|
 |07.05.2020|#Aufwachfrage: Ist dein Glas eher halb voll oder halb leer, wenn du an einen erfüllten Job denkst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1258282945066000384)|
 |06.05.2020|#Aufwachfrage: Sind dir deine Verwandten manchmal peinlich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1257920594391248896)|
-|05.05.2020|#Aufwachfrage: Könntest du eine Beziehung/Partnerschaft mit Pippi Langstrumpf führen?
-(Geschlechter- u Altersfragen… https://t.co/MUgez2DAH2|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1257558191782727681)|
+|05.05.2020|#Aufwachfrage: Könntest du eine Beziehung/Partnerschaft mit Pippi Langstrumpf führen?<br/>(Geschlechter- u Altersfragen… https://t.co/MUgez2DAH2|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1257558191782727681)|
 |04.05.2020|#Aufwachfrage: Wie würdest du es angehen, wenn du für dafür verantwortlich wärst, in Deutschland die  #Corona… https://t.co/1NIak48Q1X|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1257195804453978112)|
-|01.05.2020|#Aufwachfrage: Was ist #Qualität für dich?
----
-(inspiriert vom Buch ""Zen und die Kunst ein Motorrad zu warten"")|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1256108644619423744)|
+|01.05.2020|#Aufwachfrage: Was ist #Qualität für dich?<br/>---<br/>(inspiriert vom Buch "Zen und die Kunst ein Motorrad zu warten")|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1256108644619423744)|
 |30.04.2020|#Aufwachfrage: Würdest du #Wahrheit oder #Pflicht  wählen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1255746208087318528)|
 |29.04.2020|#Aufwachfrage: Würden wir als Bevölkerung es auch völlig ohne Vorschriften der Regierung hinkriegen, uns beim Schut… https://t.co/NFlnXdHMsH|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1255383846889144320)|
 |28.04.2020|#Aufwachfrage: Woraus ziehst du in Zeiten von #SocialDistancing und #HomeOffice deine #Inspiration?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1255021468406222848)|
@@ -544,48 +475,34 @@ https://t.co/wYZzSQ585s|[Twitter URL](http://twitter.com/udowiegaertner/statuses
 |22.04.2020|#Aufwachfrage: Wird deine interne Batterie dieser Tage leerer oder voller?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1252849445911146497)|
 |21.04.2020|#Aufwachfrage: Wie hoch ist die #Reproduktionszahl für Ideen in deinem Unternehmen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1252484732329304064)|
 |21.04.2020|#Aufwachfrage: Wie hoch ist die #Reproduktionszahl für Ideen in deinem Unternehmen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1252484732329304064)|
-|20.04.2020|#Aufwachfrage: Wie #systemrelevant bist du für das System, in dem du beruflich agierst?
-(der Allgemeinplatz ""jede/r… https://t.co/SK1f7zQLuu|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1252121138353840134)|
-|20.04.2020|#Aufwachfrage: Wie #systemrelevant bist du für das System, in dem du beruflich agierst?
-(der Allgemeinplatz ""jede/r… https://t.co/SK1f7zQLuu|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1252121138353840134)|
+|20.04.2020|#Aufwachfrage: Wie #systemrelevant bist du für das System, in dem du beruflich agierst?<br/>(der Allgemeinplatz "jede/r… https://t.co/SK1f7zQLuu|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1252121138353840134)|
+|20.04.2020|#Aufwachfrage: Wie #systemrelevant bist du für das System, in dem du beruflich agierst?<br/>(der Allgemeinplatz "jede/r… https://t.co/SK1f7zQLuu|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1252121138353840134)|
 |17.04.2020|#Aufwachfrage: Wie hat sich deine #Konzentrationsfähigkeit seit Beginn der #HomeOffice-Phase verändert?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1251035223447547906)|
 |17.04.2020|#Aufwachfrage: Wie hat sich deine #Konzentrationsfähigkeit seit Beginn der #HomeOffice-Phase verändert?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1251035223447547906)|
 |16.04.2020|#Aufwachfrage: Ist dein Privatleben langweilig (nach deinen eigenen Maßstäben)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1250672824479596544)|
 |14.04.2020|#Aufwachfrage: Ist es eigentlich wünschenswert, #duldsam zu sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1249972229607247874)|
 |13.04.2020|#Aufwachfrage: Wie sieht deine #Utopie unserer Gesellschaft aus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1249585668763910145)|
 |10.04.2020|#Aufwachfrage: Siegt am Ende eigentlich der Tod oder das Leben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1248537142235709440)|
-|09.04.2020|#Aufwachfrage: Worauf freust du dich nach der #BleibtZuhause-Phase am meisten?
-#Corona #covid19|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1248136074846777344)|
-|06.04.2020|#Aufwachfrage: Ist #Vertrauen ansteckend?
-—-
-(inspiriert durch das Buch “Im Grunde gut” von @rcbregman / https://t.co/3etuSKtsZc)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1247048926462705665)|
-|03.04.2020|#Aufwachfrage: Womit hast du dem #Coronavirus diese Woche ein Schnippchen geschlagen?
-#HackCorona #covid19|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1245964808920465408)|
+|09.04.2020|#Aufwachfrage: Worauf freust du dich nach der #BleibtZuhause-Phase am meisten?<br/>#Corona #covid19|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1248136074846777344)|
+|06.04.2020|#Aufwachfrage: Ist #Vertrauen ansteckend?<br/>—-<br/>(inspiriert durch das Buch “Im Grunde gut” von @rcbregman / https://t.co/3etuSKtsZc)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1247048926462705665)|
+|03.04.2020|#Aufwachfrage: Womit hast du dem #Coronavirus diese Woche ein Schnippchen geschlagen?<br/>#HackCorona #covid19|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1245964808920465408)|
 |02.04.2020|#Aufwachfrage: Welche Assoziationen weckt die Formulierung “keine #Denkverbote” bei dir?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1245645583332700160)|
 |01.04.2020|Durch die #Aufwachfrage und vor allem durch @jojo_en_riant habe ich heute in einer 5-Minuten- #Remote-Workshop-Paus… https://t.co/wmB8jGyvrA|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1245441200515145742)|
-|01.04.2020|#Aufwachfrage: Was siehst du hier in diesem essbaren #Rohrschachtest?
-(Diese Frage hat heute am familiären Frühstüc… https://t.co/CazRhUrG1y|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1245253982274170880)|
+|01.04.2020|#Aufwachfrage: Was siehst du hier in diesem essbaren #Rohrschachtest?<br/>(Diese Frage hat heute am familiären Frühstüc… https://t.co/CazRhUrG1y|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1245253982274170880)|
 |31.03.2020|#Aufwachfrage: Welches Buro-Ritual vetmisst du überhaupt nicht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1244874602964307970)|
-|30.03.2020|#Aufwachfrage: Was ist der lustigste #Roman, den du gelesen hast?
-(Zwischen all den Corona-News würde ich gerne mal… https://t.co/5xHlbZnMa4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1244512253149356032)|
-|30.03.2020|#Aufwachfrage: Was ist der lustigste #Roman, den du gelesen hast?
-(Zwischen all den Corona-News würde ich gerne mal… https://t.co/5xHlbZnMa4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1244512253149356032)|
+|30.03.2020|#Aufwachfrage: Was ist der lustigste #Roman, den du gelesen hast?<br/>(Zwischen all den Corona-News würde ich gerne mal… https://t.co/5xHlbZnMa4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1244512253149356032)|
+|30.03.2020|#Aufwachfrage: Was ist der lustigste #Roman, den du gelesen hast?<br/>(Zwischen all den Corona-News würde ich gerne mal… https://t.co/5xHlbZnMa4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1244512253149356032)|
 |27.03.2020|#Aufwachfrage: Was stirbt eigentlich nach der #Hoffnung?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1243440139763961856)|
-|26.03.2020|#Aufwachfrage: Welcher Aspekt vom momentanen #SocialDistancing hat dich bisher im meisten überrascht?
-#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1243077749725704192)|
-|26.03.2020|#Aufwachfrage: Welcher Aspekt vom momentanen #SocialDistancing hat dich bisher im meisten überrascht?
-#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1243077749725704192)|
+|26.03.2020|#Aufwachfrage: Welcher Aspekt vom momentanen #SocialDistancing hat dich bisher im meisten überrascht?<br/>#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1243077749725704192)|
+|26.03.2020|#Aufwachfrage: Welcher Aspekt vom momentanen #SocialDistancing hat dich bisher im meisten überrascht?<br/>#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1243077749725704192)|
 |24.03.2020|#Aufwachfrage: Wie unterscheiden sich bei dir #RemoteMeetings von Präsenz-Meetings hinsichtlich Dauer und Qualität der Ergebnisse?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1242353011961344002)|
-|23.03.2020|#Aufwachfrage: Welche Mini-Geschichte über deinen momentanen Alltag erzählen diese @StoryCubes?
-#StoryCubes… https://t.co/2NfDjo1i4N|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1241990571050373121)|
+|23.03.2020|#Aufwachfrage: Welche Mini-Geschichte über deinen momentanen Alltag erzählen diese @StoryCubes?<br/>#StoryCubes… https://t.co/2NfDjo1i4N|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1241990571050373121)|
 |20.03.2020|#Aufwachfrage: Was war in deinem Leben diese Woche besser als in den Wochen vorher?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240903567973769216)|
 |20.03.2020|#Aufwachfrage: Was war in deinem Leben diese Woche besser als in den Wochen vorher?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240903567973769216)|
 |19.03.2020|#Aufwachfrage: Funktioniert gesunder Menschenverstand, wenn eine ganze Bevölkerung ihn gleichzeitig beherzigen soll… https://t.co/n7YdDfyU6q|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240541028739960832)|
 |19.03.2020|#Aufwachfrage: Funktioniert gesunder Menschenverstand, wenn eine ganze Bevölkerung ihn gleichzeitig beherzigen soll… https://t.co/n7YdDfyU6q|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240541028739960832)|
-|18.03.2020|#Aufwachfrage: Was können wir von Viren lernen?
-#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240178683102613506)|
-|18.03.2020|#Aufwachfrage: Was können wir von Viren lernen?
-#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240178683102613506)|
+|18.03.2020|#Aufwachfrage: Was können wir von Viren lernen?<br/>#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240178683102613506)|
+|18.03.2020|#Aufwachfrage: Was können wir von Viren lernen?<br/>#covid19 #Corona|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1240178683102613506)|
 |17.03.2020|#Aufwachfrage: Wie besorgt bist du dieser Tage?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1239823042710249473)|
 |17.03.2020|#Aufwachfrage: Wie besorgt bist du dieser Tage?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1239823042710249473)|
 |16.03.2020|#Aufwachfrage: Was ist dein persönlicher Pro-Tipp für #HomeOffice?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1239460235112218632)|
@@ -606,75 +523,55 @@ https://t.co/wYZzSQ585s|[Twitter URL](http://twitter.com/udowiegaertner/statuses
 |02.03.2020|#Aufwachfrage: Bist du kreativ?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1234380460622565376)|
 |02.03.2020|#Aufwachfrage: Bist du kreativ?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1234380460622565376)|
 |29.02.2020|#Aufwachfrage: Glaubst du, du wirst dich mit dem Coronavirus anstecken?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1233665413684383745)|
-|28.02.2020|#Aufwachfrage: Wie sehr trennst du #Arbeitszeit und #Freizeit?
----
-(inspiriert durch die #Podcast-Episode ""Neuregel… https://t.co/TwpqhcWEOe|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1233293258895347713)|
+|28.02.2020|#Aufwachfrage: Wie sehr trennst du #Arbeitszeit und #Freizeit?<br/>---<br/>(inspiriert durch die #Podcast-Episode "Neuregel… https://t.co/TwpqhcWEOe|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1233293258895347713)|
 |27.02.2020|#Aufwachfrage: Gibt es #Sünde?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1232930930630778880)|
 |26.02.2020|#Aufwachfrage: Was macht dein Leben unnötig komplex?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1232568561727614979)|
-|25.02.2020|#Aufwachfrage: Was über's Leben hast du aus einem Roman gelernt?
-(inspiriert durch eine Liedzeile von @theesuhlmann… https://t.co/v1X0wqttKl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1232206154182406145)|
+|25.02.2020|#Aufwachfrage: Was über's Leben hast du aus einem Roman gelernt?<br/>(inspiriert durch eine Liedzeile von @theesuhlmann… https://t.co/v1X0wqttKl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1232206154182406145)|
 |24.02.2020|#Aufwachfrage: Was ist deine unsichtbare Verkleidung im Alltag?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1231843706875056128)|
 |21.02.2020|#Aufwachfrage: Wie findest du aus einem #Dilemma heraus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1230756591747469312)|
 |21.02.2020|#Aufwachfrage: Wie findest du aus einem #Dilemma heraus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1230756591747469312)|
 |20.02.2020|#Aufwachfrage: Welcher Live-Song macht dir (positive) #Gänsehaut?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1230394166963843072)|
 |20.02.2020|#Aufwachfrage: Welcher Live-Song macht dir (positive) #Gänsehaut?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1230394166963843072)|
-|19.02.2020|#Aufwachfrage: Was läuft gut in Deutschland?
-(Ironie, Sarkasmus, Hass und Kalauer dürfen diesmal gerne daheim gelassen werden)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1230031806847647746)|
+|19.02.2020|#Aufwachfrage: Was läuft gut in Deutschland?<br/>(Ironie, Sarkasmus, Hass und Kalauer dürfen diesmal gerne daheim gelassen werden)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1230031806847647746)|
 |18.02.2020|#Aufwachfrage: Ist #Anstand spießig?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1229669398081933312)|
-|17.02.2020|#Aufwachfrage: Was wirst du heute lehren?
-#AgileOpenFire|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1229307073659273217)|
-|14.02.2020|#Aufwachfrage: Wieviel wert ist ein Mensch?
-(Danke für die Frage an @OezuerEngel, dem die Frage von einem 6-jährigen Kind gestellt wurde)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1228219876981919745)|
+|17.02.2020|#Aufwachfrage: Was wirst du heute lehren?<br/>#AgileOpenFire|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1229307073659273217)|
+|14.02.2020|#Aufwachfrage: Wieviel wert ist ein Mensch?<br/>(Danke für die Frage an @OezuerEngel, dem die Frage von einem 6-jährigen Kind gestellt wurde)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1228219876981919745)|
 |13.02.2020|#Aufwachfrage: Ist ein gesetzlicher Feiertag am 05.02. zur Erinnerung von Gewalt und Verfolgung durch #Faschismus i… https://t.co/iyA0yq9NFE|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1227857484582391814)|
 |13.02.2020|#Aufwachfrage: Ist ein gesetzlicher Feiertag am 05.02. zur Erinnerung von Gewalt und Verfolgung durch #Faschismus i… https://t.co/iyA0yq9NFE|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1227857484582391814)|
-|12.02.2020|#Aufwachfrage: Wozu will dein Unternehmen agil(er) werden?
-#agile #Agilität|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1227495069088792576)|
+|12.02.2020|#Aufwachfrage: Wozu will dein Unternehmen agil(er) werden?<br/>#agile #Agilität|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1227495069088792576)|
 |11.02.2020|#Aufwachfrage: Wovon bist du beseelt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1227132667147231232)|
 |11.02.2020|#Aufwachfrage: Wovon bist du beseelt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1227132667147231232)|
 |10.02.2020|#Aufwachfrage: Erzählst du oft (wahre) Geschichten von dir?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1226770325398081537)|
 |10.02.2020|#Aufwachfrage: Erzählst du oft (wahre) Geschichten von dir?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1226770325398081537)|
 |07.02.2020|#Aufwachfrage: Führst du in sozialen Netzwerken inhaltliche Diskussionen bewusst auch mit Menschen _außerhalb_ deiner #Filterblase?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1225683136614285314)|
 |07.02.2020|#Aufwachfrage: Führst du in sozialen Netzwerken inhaltliche Diskussionen bewusst auch mit Menschen _außerhalb_ deiner #Filterblase?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1225683136614285314)|
-|06.02.2020|#Aufwachfrage: Kann es sein, dass Menschen tun, was du willst - trotz Selbstorganisation?
-(Danke für die Frage an @GerritBeine)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1225320811248181249)|
-|05.02.2020|#Aufwachfrage: Was unterscheidet gutes Basis-Know-How von gefährlichem Halbwissen?
-(Danke für die Frage an @svnwnk)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224958361982119936)|
-|05.02.2020|#Aufwachfrage: Was unterscheidet gutes Basis-Know-How von gefährlichem Halbwissen?
-(Danke für die Frage an @svnwnk)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224958361982119936)|
-|04.02.2020|#Aufwachfrage: Wie würdest du deine Punk Band nennen?
-#namingThings|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224595950238412800)|
-|03.02.2020|#Aufwachfrage: Wie geschäftig wirkst du im Job wohl auf deine Kolleg*innen auf einer Skala bis max 10?
-(Danke für d… https://t.co/CY1eMah8Nl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224233616043118593)|
+|06.02.2020|#Aufwachfrage: Kann es sein, dass Menschen tun, was du willst - trotz Selbstorganisation?<br/>(Danke für die Frage an @GerritBeine)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1225320811248181249)|
+|05.02.2020|#Aufwachfrage: Was unterscheidet gutes Basis-Know-How von gefährlichem Halbwissen?<br/>(Danke für die Frage an @svnwnk)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224958361982119936)|
+|05.02.2020|#Aufwachfrage: Was unterscheidet gutes Basis-Know-How von gefährlichem Halbwissen?<br/>(Danke für die Frage an @svnwnk)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224958361982119936)|
+|04.02.2020|#Aufwachfrage: Wie würdest du deine Punk Band nennen?<br/>#namingThings|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224595950238412800)|
+|03.02.2020|#Aufwachfrage: Wie geschäftig wirkst du im Job wohl auf deine Kolleg*innen auf einer Skala bis max 10?<br/>(Danke für d… https://t.co/CY1eMah8Nl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1224233616043118593)|
 |31.01.2020|#Aufwachfrage: Was hat dir diese Woche das Herz erwärmt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1223146454379876352)|
 |31.01.2020|#Aufwachfrage: Was hat dir diese Woche das Herz erwärmt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1223146454379876352)|
-|30.01.2020|#Aufwachfrage: Wo bist du NICHT #agile?
-(Danke für die Frage an @AgileTeamCoach)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222784080846168064)|
-|30.01.2020|#Aufwachfrage: Wo bist du NICHT #agile?
-(Danke für die Frage an @AgileTeamCoach)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222784080846168064)|
+|30.01.2020|#Aufwachfrage: Wo bist du NICHT #agile?<br/>(Danke für die Frage an @AgileTeamCoach)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222784080846168064)|
+|30.01.2020|#Aufwachfrage: Wo bist du NICHT #agile?<br/>(Danke für die Frage an @AgileTeamCoach)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222784080846168064)|
 |29.01.2020|#Aufwachfrage: Wenn du auf der Autobahn überholen willst, setzt du den Blinker links erst, wenn im Rückspiegel eine… https://t.co/UQnHOoyl2J|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222421620213587968)|
 |29.01.2020|#Aufwachfrage: Wenn du auf der Autobahn überholen willst, setzt du den Blinker links erst, wenn im Rückspiegel eine… https://t.co/UQnHOoyl2J|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222421620213587968)|
 |28.01.2020|#Aufwachfrage: Sollte ein Unternehmen bei #Innovationen seine existierendes Portfolio mit neuen Produkten/Geschäftsmodellen kannibalisieren?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222059245157453826)|
 |28.01.2020|#Aufwachfrage: Sollte ein Unternehmen bei #Innovationen seine existierendes Portfolio mit neuen Produkten/Geschäftsmodellen kannibalisieren?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1222059245157453826)|
 |27.01.2020|#Aufwachfrage: Zu welchen Themen hast du in der letzten Zeit in #Wikipedia gelesen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1221696937763778561)|
 |24.01.2020|#Aufwachfrage: Kann man andere Menschen überzeugen, ihre Meinung bei wichtigen Themen zu ändern?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1220609683767070721)|
-|23.01.2020|#Aufwachfrage: Bei welchen Gelegenheiten im Job würdest du Sätze gerne beginnen mit ""OK Boomer""?
-#okBoomer|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1220247318005473286)|
+|23.01.2020|#Aufwachfrage: Bei welchen Gelegenheiten im Job würdest du Sätze gerne beginnen mit "OK Boomer"?<br/>#okBoomer|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1220247318005473286)|
 |22.01.2020|#Aufwachfrage: Für welchen "Star" hast du in deiner #Pubertät romantisch geschwärmt? https://t.co/QlKIs3dTY0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1219884946267017216)|
 |22.01.2020|#Aufwachfrage: Für welchen "Star" hast du in deiner #Pubertät romantisch geschwärmt? https://t.co/QlKIs3dTY0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1219884946267017216)|
-|21.01.2020|#Aufwachfrage: Wie viele PS hat der größte PKW in deinem Haushalt?
-CC @kkklawitter|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1219522519377551360)|
+|21.01.2020|#Aufwachfrage: Wie viele PS hat der größte PKW in deinem Haushalt?<br/>CC @kkklawitter|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1219522519377551360)|
 |17.01.2020|#Aufwachfrage: Was wird heute dein Moment der #Rebellion?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1218075244696608769)|
 |17.01.2020|#Aufwachfrage: Wirst du geführt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1218072987573899264)|
 |17.01.2020|#Aufwachfrage: Wirst du geführt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1218072987573899264)|
-|16.01.2020|#Aufwachfrage: Woran erkennst du einen gebildeten Menschen?
-#BildungFetzt https://t.co/NU1qWub4e3|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1217711672992894982)|
-|16.01.2020|#Aufwachfrage: Woran erkennst du einen gebildeten Menschen?
-#BildungFetzt https://t.co/NU1qWub4e3|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1217711672992894982)|
+|16.01.2020|#Aufwachfrage: Woran erkennst du einen gebildeten Menschen?<br/>#BildungFetzt https://t.co/NU1qWub4e3|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1217711672992894982)|
+|16.01.2020|#Aufwachfrage: Woran erkennst du einen gebildeten Menschen?<br/>#BildungFetzt https://t.co/NU1qWub4e3|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1217711672992894982)|
 |15.01.2020|#Aufwachfrage: Wenn es ein Individualreiseführer-Buch gäbe, das nicht ein Land, sondern DICH als Persönlichkeit bes… https://t.co/jRcFm6MYb2|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1217348288468389888)|
-|14.01.2020|#Aufwachfrage: Welche #Ehrenämter hast du?
-#Ehrenamt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1216985840267730944)|
-|14.01.2020|#Aufwachfrage: Welche #Ehrenämter hast du?
-#Ehrenamt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1216985840267730944)|
+|14.01.2020|#Aufwachfrage: Welche #Ehrenämter hast du?<br/>#Ehrenamt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1216985840267730944)|
+|14.01.2020|#Aufwachfrage: Welche #Ehrenämter hast du?<br/>#Ehrenamt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1216985840267730944)|
 |13.01.2020|#Aufwachfrage: Wofür legst du mental einen Vorrat an? https://t.co/tDIVrLyTq9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1216623502213685248)|
 |13.01.2020|#Aufwachfrage: Wofür legst du mental einen Vorrat an? https://t.co/tDIVrLyTq9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1216623502213685248)|
 |10.01.2020|#Aufwachfrage: Welche Regel wurde in deinem Unternehmen zuletzt abgeschafft?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1215536321747476480)|
@@ -683,9 +580,7 @@ CC @kkklawitter|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1219522
 |08.01.2020|#Aufwachfrage: Wie würdest du im Job-Kontext folgenden Satz vervollständigen "..., drunter mach ich's nicht."?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1214811564479516673)|
 |08.01.2020|#Aufwachfrage: Wie würdest du im Job-Kontext folgenden Satz vervollständigen "..., drunter mach ich's nicht."?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1214811564479516673)|
 |07.01.2020|#Aufwachfrage: Würdest du eingreifen, wenn jemand die deutsche Flagge verbrennt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1214449137409822721)|
-|06.01.2020|#Aufwachfrage: Worüber willst du 2020 glücklich gewesen sein?
----
-(inspiriert von Margot #Käßmann im Interview mit… https://t.co/0df2buGcAC|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1214090988391739394)|
+|06.01.2020|#Aufwachfrage: Worüber willst du 2020 glücklich gewesen sein?<br/>---<br/>(inspiriert von Margot #Käßmann im Interview mit… https://t.co/0df2buGcAC|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1214090988391739394)|
 |03.01.2020|#Aufwachfrage: Was nutzt du als #Stimmgabel, um in einem Gespräch den richtigen Ton zu treffen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1213003326830366721)|
 |02.01.2020|#Aufwachfrage: Wie fragt man nach #Feedback, damit man es ehrlich, authentisch und ausgewogen erhält?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1212637154540707840)|
 |01.01.2020|#Aufwachfrage: Was wirst du am Ende deines Lebens mutmaßlich vom gerade zu Ende gegangenen Jahrzehnt erzählen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1212290342310961153)|
@@ -701,8 +596,7 @@ CC @kkklawitter|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1219522
 |19.12.2019|#Aufwachfrage; Welchen Beruf würden deine Arbeitskolleg*innen vermutlich für dich empfehlen, wenn sie #Berufsberater wären?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1207563770899378176)|
 |18.12.2019|#Aufwachfrage: Was in deinem Alltag ist #erhaben für dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1207201415199907841)|
 |18.12.2019|#Aufwachfrage: Was in deinem Alltag ist #erhaben für dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1207201415199907841)|
-|17.12.2019|#Aufwachfrage: Wie siehst du gerade aus?
-(Das ist die Einladung zu einem #AufwachfrageSelfie.  Lasst uns heute mal… https://t.co/LSxDeyUy5h|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1206839016794066945)|
+|17.12.2019|#Aufwachfrage: Wie siehst du gerade aus?<br/>(Das ist die Einladung zu einem #AufwachfrageSelfie.  Lasst uns heute mal… https://t.co/LSxDeyUy5h|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1206839016794066945)|
 |16.12.2019|#Aufwachfrage: Warum verbringst du eigentlich so viel Zeit in deiner Twitter-Blase?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1206476575761453057)|
 |16.12.2019|#Aufwachfrage: Warum verbringst du eigentlich so viel Zeit in deiner Twitter-Blase?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1206476575761453057)|
 |13.12.2019|#Aufwachfrage: Ist deine Firmen-#Weihnachtsfeier hilfreich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1205389476924731392)|
@@ -722,65 +616,43 @@ CC @kkklawitter|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1219522
 |28.11.2019|#Aufwachfrage: Woran machst du fest, ob du das #Vertrauen deines Chef*in hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1199953576979836928)|
 |27.11.2019|#Aufwachfrage: Wie gut kennt dein CEO/Geschäftsführer*in dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1199591186522103808)|
 |26.11.2019|#Aufwachfrage: Was dein größtes #Emoji #Fail?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1199228799159803904)|
-|25.11.2019|#Aufwachfrage: Wann war deine letzte #Flow-Situation?
-(Danke für die Frage an @reas16555156)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1198866411646529536)|
+|25.11.2019|#Aufwachfrage: Wann war deine letzte #Flow-Situation?<br/>(Danke für die Frage an @reas16555156)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1198866411646529536)|
 |22.11.2019|@tirlaender @GerritBeine @simondiegmann @andre_hoefler Das absichtliche Verlassen der eigenen #Komfortzone sollte d… https://t.co/yKgOQTXKDN|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197782824096600064)|
 |22.11.2019|#Aufwachfrage: Wie viele von max 10 Außerhalb-meiner-Komfortzone-Punkte gibst du deiner bisherigen Woche?… https://t.co/dOS9xkQ8KE|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197779297328603137)|
 |22.11.2019|#Aufwachfrage: Wie viele von max 10 Außerhalb-meiner-Komfortzone-Punkte gibst du deiner bisherigen Woche?… https://t.co/dOS9xkQ8KE|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197779297328603137)|
-|21.11.2019|#Aufwachfrage: Was ist #Würde?
----
-(inspiriert durch eine Folge des #Podcast @radioWissen zu diesem Thema: https://t.co/kVmmi7GIOU)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197416929524428801)|
-|20.11.2019|#WakeUpQuestion: What of your personal #behaviour do you have to #unlearn because it makes #climateChange worse?
---… https://t.co/FqFo072uUj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197054470422749185)|
-|20.11.2019|#WakeUpQuestion: What of your personal #behaviour do you have to #unlearn because it makes #climateChange worse?
---… https://t.co/FqFo072uUj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197054470422749185)|
-|19.11.2019|#Aufwachfrage: Welche #Gelegenheit hast du kürzlich beim Schopfe gepackt?
----
-(Danke für die Frage an @DugarToGo)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1196692084805324800)|
-|19.11.2019|#Aufwachfrage: Welche #Gelegenheit hast du kürzlich beim Schopfe gepackt?
----
-(Danke für die Frage an @DugarToGo)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1196692084805324800)|
-|18.11.2019|#Aufwachfrage: Welche Gelegenheit hast du zuletzt verpasst?
-(Danke für die Frage an @DugarToGo)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1196329696767729664)|
-|16.11.2019|@HannesKropf 1) Das ist keine #Aufwachfrage, sondern nur ein spontaner Tweet
-2) Das ist Ironie
-3) Ich hoffe, du ste… https://t.co/1eBJ1MN0AE|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1195668630471692288)|
+|21.11.2019|#Aufwachfrage: Was ist #Würde?<br/>---<br/>(inspiriert durch eine Folge des #Podcast @radioWissen zu diesem Thema: https://t.co/kVmmi7GIOU)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197416929524428801)|
+|20.11.2019|#WakeUpQuestion: What of your personal #behaviour do you have to #unlearn because it makes #climateChange worse?<br/>--… https://t.co/FqFo072uUj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197054470422749185)|
+|20.11.2019|#WakeUpQuestion: What of your personal #behaviour do you have to #unlearn because it makes #climateChange worse?<br/>--… https://t.co/FqFo072uUj|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1197054470422749185)|
+|19.11.2019|#Aufwachfrage: Welche #Gelegenheit hast du kürzlich beim Schopfe gepackt?<br/>---<br/>(Danke für die Frage an @DugarToGo)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1196692084805324800)|
+|19.11.2019|#Aufwachfrage: Welche #Gelegenheit hast du kürzlich beim Schopfe gepackt?<br/>---<br/>(Danke für die Frage an @DugarToGo)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1196692084805324800)|
+|18.11.2019|#Aufwachfrage: Welche Gelegenheit hast du zuletzt verpasst?<br/>(Danke für die Frage an @DugarToGo)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1196329696767729664)|
+|16.11.2019|@HannesKropf 1) Das ist keine #Aufwachfrage, sondern nur ein spontaner Tweet<br/>2) Das ist Ironie<br/>3) Ich hoffe, du ste… https://t.co/1eBJ1MN0AE|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1195668630471692288)|
 |15.11.2019|#Aufwachfrage: Warum scheint es manchmal so schwer, #Klartext und #Diplomatie im Job in Einklang zu bringen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1195242592696504320)|
 |14.11.2019|#Aufwachfrage: Wie groß ist deine #Heimat?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1194880153794547712)|
 |13.11.2019|#Aufwachfrage: Woran merkst du, dass du mental gewachsen bist? https://t.co/QYgqwBeXUe|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1194517811005214720)|
-|12.11.2019|#Aufwachfrage: Wie hältst du es im Unternehmen und privat mit ""Du"" und ""Sie""?
-(Danke für die Frage an @MariaGruener und @montagsimpulse)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1194155420438413312)|
-|12.11.2019|#Aufwachfrage: Wie hältst du es im Unternehmen und privat mit ""Du"" und ""Sie""?
-(Danke für die Frage an @MariaGruener und @montagsimpulse)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1194155420438413312)|
+|12.11.2019|#Aufwachfrage: Wie hältst du es im Unternehmen und privat mit "Du" und "Sie"?<br/>(Danke für die Frage an @MariaGruener und @montagsimpulse)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1194155420438413312)|
+|12.11.2019|#Aufwachfrage: Wie hältst du es im Unternehmen und privat mit "Du" und "Sie"?<br/>(Danke für die Frage an @MariaGruener und @montagsimpulse)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1194155420438413312)|
 |11.11.2019|#Aufwachfrage: Was hilft gegen Enttäuschung?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1193793043595505664)|
 |11.11.2019|#Aufwachfrage: Was hilft gegen Enttäuschung?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1193793043595505664)|
-|08.11.2019|#Aufwachfrage: Was ist deine lebendigste Erinnerung an die Tage um den 09. November 1989?
-#30JahreMauerfall|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1192705858276384768)|
-|08.11.2019|#Aufwachfrage: Was ist deine lebendigste Erinnerung an die Tage um den 09. November 1989?
-#30JahreMauerfall|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1192705858276384768)|
+|08.11.2019|#Aufwachfrage: Was ist deine lebendigste Erinnerung an die Tage um den 09. November 1989?<br/>#30JahreMauerfall|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1192705858276384768)|
+|08.11.2019|#Aufwachfrage: Was ist deine lebendigste Erinnerung an die Tage um den 09. November 1989?<br/>#30JahreMauerfall|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1192705858276384768)|
 |07.11.2019|#Aufwachfrage: Auf welchen Kostenträger soll ich das buchen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1192358792807243776)|
 |06.11.2019|#Aufwachfrage: Geht #Mut ohne #Angst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1191985889813106688)|
 |05.11.2019|#Aufwachfrage: Wozu umarmst du Menschen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1191618729068683265)|
 |04.11.2019|#Aufwachfrage: Streitest du mit deinen allerbesten Freunden über verschiedene Weltanschauungen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1191256267311996928)|
 |01.11.2019|#Aufwachfrage: Was war der absurdeste #Jobtitel, der dir bisher begegnet ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1190169170840829952)|
-|31.10.2019|#Aufwachfrage: Dein Arbeitskollege liebäugelt mit der AfD - wie gehst du damit um?
-(vielen Dank für die Frage an @joergpreiss)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1189806731729285127)|
+|31.10.2019|#Aufwachfrage: Dein Arbeitskollege liebäugelt mit der AfD - wie gehst du damit um?<br/>(vielen Dank für die Frage an @joergpreiss)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1189806731729285127)|
 |29.10.2019|#Aufwachfrage: Was war die lehrreichste Session, bei der du in einem #OpenSpace bzw #BarCamp jeweils dabei warst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1189072381987479552)|
 |28.10.2019|#Aufwachfrage: Was sind konstruktive Antworten auf Aussagen wie "Wir verwenden in Meetings ausschließlich digitale… https://t.co/x1cqGbPIkW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1188719573090131968)|
 |28.10.2019|#Aufwachfrage: Was sind konstruktive Antworten auf Aussagen wie "Wir verwenden in Meetings ausschließlich digitale… https://t.co/x1cqGbPIkW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1188719573090131968)|
-|26.10.2019|@pfft_ahhhh @MkKueper Sehen spannend aus, diese Big Talk Cards.
-So ähnlich ist das mit der #Aufwachfrage.|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1188192262309732352)|
+|26.10.2019|@pfft_ahhhh @MkKueper Sehen spannend aus, diese Big Talk Cards.<br/>So ähnlich ist das mit der #Aufwachfrage.|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1188192262309732352)|
 |25.10.2019|#Aufwachfrage: Lehnst du dir angebotene Hilfe oft ab?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1187617379767017474)|
 |25.10.2019|#Aufwachfrage: Lehnst du dir angebotene Hilfe oft ab?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1187617379767017474)|
-|24.10.2019|#Aufwachfrage: Was antwortest du üblicherweise auf die Frage "Und was machst du so beruflich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1187254961874362374)|
-|24.10.2019|#Aufwachfrage: Was antwortest du üblicherweise auf die Frage "Und was machst du so beruflich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1187254961874362374)|
-|23.10.2019|#Aufwachfrage: Was sind deine Tipps im Umgang mit Energievampiren?
-(Danke für die Frage an @andrelanger)
-#energievampir #energievampire|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186892541326700544)|
-|22.10.2019|#Aufwachfrage: Hast du in den letzten 12 Monaten persönlich #Korruption erlebt?
-(gemeint ist wirklich unmittelbar p… https://t.co/ZdCfZO5GKv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186530172763332608)|
-|22.10.2019|#Aufwachfrage: Hast du in den letzten 12 Monaten persönlich #Korruption erlebt?
-(gemeint ist wirklich unmittelbar p… https://t.co/ZdCfZO5GKv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186530172763332608)|
+|24.10.2019|#Aufwachfrage: Was antwortest du üblicherweise auf die Frage "Und was machst du so beruflich?"|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1187254961874362374)|
+|24.10.2019|#Aufwachfrage: Was antwortest du üblicherweise auf die Frage "Und was machst du so beruflich?"|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1187254961874362374)|
+|23.10.2019|#Aufwachfrage: Was sind deine Tipps im Umgang mit Energievampiren?<br/>(Danke für die Frage an @andrelanger)<br/>#energievampir #energievampire|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186892541326700544)|
+|22.10.2019|#Aufwachfrage: Hast du in den letzten 12 Monaten persönlich #Korruption erlebt?<br/>(gemeint ist wirklich unmittelbar p… https://t.co/ZdCfZO5GKv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186530172763332608)|
+|22.10.2019|#Aufwachfrage: Hast du in den letzten 12 Monaten persönlich #Korruption erlebt?<br/>(gemeint ist wirklich unmittelbar p… https://t.co/ZdCfZO5GKv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186530172763332608)|
 |21.10.2019|#Aufwachfrage: Wenn dein #Smartphone Alkohol wäre, würde dein enges Umfeld dich für einen #Alkoholiker halten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186167753020973056)|
 |21.10.2019|#Aufwachfrage: Wenn dein #Smartphone Alkohol wäre, würde dein enges Umfeld dich für einen #Alkoholiker halten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1186167753020973056)|
 |18.10.2019|#Aufwachfrage: Was passiert beim für dich perfekten #Betriebsausflug?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1185076360856903680)|
@@ -793,94 +665,71 @@ So ähnlich ist das mit der #Aufwachfrage.|[Twitter URL](http://twitter.com/udow
 |14.10.2019|#Aufwachfrage: Von welchem (eigentlich schon alten) Kleidungsstück kannst du dich nur schwer trennen, da du es mit… https://t.co/3h96uqKvVx|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1183631057104576512)|
 |11.10.2019|#Aufwachfrage: Wie welche TV-Serie ist dir deine Woche bisher vorgekommen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1182543867419267072)|
 |10.10.2019|#Aufwachfrage: Stinkt #Eigenlob?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1182181525825167360)|
-|09.10.2019|#Aufwachfrage: Welche #Apps haben es aktuell auf den ersten Screen deines #Smartphones geschafft?
-(ein #Screenshot… https://t.co/kD6SzZkBF4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1181819084280881152)|
+|09.10.2019|#Aufwachfrage: Welche #Apps haben es aktuell auf den ersten Screen deines #Smartphones geschafft?<br/>(ein #Screenshot… https://t.co/kD6SzZkBF4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1181819084280881152)|
 |08.10.2019|#Aufwachfrage: Als Unternehmen lieber nah am Konkurs und moralisch sauber oder finanziell erfolgreich und moralisch fragwürdig?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1181456711678353408)|
-|07.10.2019|#WakeUpQuestion: What is your experience with #MobProgramming?
-#Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1181094337716862976)|
+|07.10.2019|#WakeUpQuestion: What is your experience with #MobProgramming?<br/>#Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1181094337716862976)|
 |04.10.2019|@SCRUMschau @n3rdiana @ArthurBendler Du hast recht mit dem guten Handwerker. Die #Aufwachfrage gestern und heute ha… https://t.co/wqPChAjdGY|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1180076687142326272)|
 |04.10.2019|#Aufwachfrage: Welchen Satz muss man als Sprecher*in während eines Konferenzvortrags sagen, damit du ganz gebannt z… https://t.co/9AyzxZfj18|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1180007194156261377)|
 |04.10.2019|#Aufwachfrage: Welchen Satz muss man als Sprecher*in während eines Konferenzvortrags sagen, damit du ganz gebannt z… https://t.co/9AyzxZfj18|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1180007194156261377)|
 |02.10.2019|#Aufwachfrage: Welcher Satz bei einem Konferenzvortrag lässt dich als Zuhörer*in sofort abschalten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1179282431490347008)|
 |01.10.2019|#Aufwachfrage: Wie gehst du damit um, wenn du mit jemandem zusammen arbeiten musst, den du für inkompetent hältst?… https://t.co/ic6dAfc1kg|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1178909115856371712)|
 |01.10.2019|#Aufwachfrage: Wie gehst du damit um, wenn du mit jemandem zusammen arbeiten musst, den du für inkompetent hältst?… https://t.co/ic6dAfc1kg|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1178909115856371712)|
-|30.09.2019|#Aufwachfrage: Wann und was war dein letzter #Mutausbruch?
-(Danke für die Frage an @kingxelor)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1178557654156886016)|
-|30.09.2019|#Aufwachfrage: Wann und was war dein letzter #Mutausbruch?
-(Danke für die Frage an @kingxelor)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1178557654156886016)|
-|27.09.2019|#Aufwachfrage: Was sind die Kerpunkte deines persönlichen #Ehrenkodex im Job?
-#newWork #leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1177470474277679104)|
-|27.09.2019|#Aufwachfrage: Was sind die Kerpunkte deines persönlichen #Ehrenkodex im Job?
-#newWork #leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1177470474277679104)|
+|30.09.2019|#Aufwachfrage: Wann und was war dein letzter #Mutausbruch?<br/>(Danke für die Frage an @kingxelor)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1178557654156886016)|
+|30.09.2019|#Aufwachfrage: Wann und was war dein letzter #Mutausbruch?<br/>(Danke für die Frage an @kingxelor)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1178557654156886016)|
+|27.09.2019|#Aufwachfrage: Was sind die Kerpunkte deines persönlichen #Ehrenkodex im Job?<br/>#newWork #leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1177470474277679104)|
+|27.09.2019|#Aufwachfrage: Was sind die Kerpunkte deines persönlichen #Ehrenkodex im Job?<br/>#newWork #leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1177470474277679104)|
 |26.09.2019|#Aufwachfrage: Wären wir eigentlich besser dran, wenn unsere regierenden Politiker*innen #Asperger-Syndrom hätten (… https://t.co/ZVuobr3SBz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1177108115319394304)|
 |26.09.2019|#Aufwachfrage: Wären wir eigentlich besser dran, wenn unsere regierenden Politiker*innen #Asperger-Syndrom hätten (… https://t.co/ZVuobr3SBz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1177108115319394304)|
 |25.09.2019|#Aufwachfrage: Wie hättest du deinen Kindern am Vorabend deines Aufbruchs zur ersten Mondlandung (anstelle von Neil… https://t.co/ivIKXYI7bp|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1176745661431242752)|
 |24.09.2019|#Aufwachfrage: In wie vielen von 10 Besprechungen fühlst du dich wie der heimliche oder offensichtliche Spinner der Runde?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1176383290934214656)|
 |23.09.2019|#Aufwachfrage: Was ist der Mehrwert eines "#Senior" im Job-Titel bzw nach welchen Kriterien sollte das vergeben wer… https://t.co/1zbw0j2pdB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1176020963152060418)|
 |23.09.2019|@SCRUMschau Die #Aufwachfrage ist jetzt nicht mehr nötig, da ihr nun alle meine Fragen beantwortet habt. ;-)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1176005750839291904)|
-|22.09.2019|@MkKueper Mein ein Video für (m)einen CEO wäre das gezeichnete Video zum TED-Talk von @DanielPink:
-""Drive: The surp… https://t.co/S36agKKTdc|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1175736553819295744)|
+|22.09.2019|@MkKueper Mein ein Video für (m)einen CEO wäre das gezeichnete Video zum TED-Talk von @DanielPink:<br/>"Drive: The surp… https://t.co/S36agKKTdc|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1175736553819295744)|
 |20.09.2019|#Aufwachfrage: Wie war in dieser Woche deines Lebens die Verteilung zwischen #Komödie und #Tragödie?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1174936579602731008)|
-|19.09.2019|#Aufwachfrage: Welches Zitat hat dich nachhaltig beeinflusst?
-(Danke für die Frage an @mariagruener und ihre #Zitatetruhe)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1174571340126404608)|
-|19.09.2019|#Aufwachfrage: Welches Zitat hat dich nachhaltig beeinflusst?
-(Danke für die Frage an @mariagruener und ihre #Zitatetruhe)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1174571340126404608)|
+|19.09.2019|#Aufwachfrage: Welches Zitat hat dich nachhaltig beeinflusst?<br/>(Danke für die Frage an @mariagruener und ihre #Zitatetruhe)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1174571340126404608)|
+|19.09.2019|#Aufwachfrage: Welches Zitat hat dich nachhaltig beeinflusst?<br/>(Danke für die Frage an @mariagruener und ihre #Zitatetruhe)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1174571340126404608)|
 |18.09.2019|#Aufwachfrage: Wenn du in deinem Alltag mit einem mentalen Rechtsklick jederzeit ein imaginäres Kontextmenü mit nüt… https://t.co/0zjXeT6mwI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1174204614280962048)|
 |17.09.2019|#Aufwachfrage: Woran erkennst du, dass dir jemand _wirklich_ zuhört?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1173846569566818304)|
 |16.09.2019|#Aufwachfrage: Was muss ein neuer Mensch in deinem Arbeitsumfeld tun, um von dir noch ein bißchen mehr #Vertrauensvorschuss zu kriegen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1173484159064563712)|
 |16.09.2019|#Aufwachfrage: Was muss ein neuer Mensch in deinem Arbeitsumfeld tun, um von dir noch ein bißchen mehr #Vertrauensvorschuss zu kriegen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1173484159064563712)|
-|13.09.2019|#Aufwachfrage: An welchen Indizien erkennst du bei dir, dass du zufrieden bist bzw auf dem Weg dahin?
-(Danke für di… https://t.co/KTjWF1vICW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1172397017563160576)|
-|13.09.2019|#Aufwachfrage: An welchen Indizien erkennst du bei dir, dass du zufrieden bist bzw auf dem Weg dahin?
-(Danke für di… https://t.co/KTjWF1vICW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1172397017563160576)|
+|13.09.2019|#Aufwachfrage: An welchen Indizien erkennst du bei dir, dass du zufrieden bist bzw auf dem Weg dahin?<br/>(Danke für di… https://t.co/KTjWF1vICW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1172397017563160576)|
+|13.09.2019|#Aufwachfrage: An welchen Indizien erkennst du bei dir, dass du zufrieden bist bzw auf dem Weg dahin?<br/>(Danke für di… https://t.co/KTjWF1vICW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1172397017563160576)|
 |12.09.2019|#Aufwachfrage: Bist du reich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1172034687453163520)|
 |11.09.2019|#Aufwachfrage: Was wäre dein Rat, den nächsten 11. September 2001 zu vermeiden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1171672226476756992)|
 |10.09.2019|#Aufwachfrage: Welche Eigenschaft einer aktuellen Kollegin/Kollegen bewunderst du besonders?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1171309882928259072)|
 |09.09.2019|#Aufwachfrage: An welchen ausgegrabenen Artefakten würde ein Archäologe in 4000 Jahren wohl ablesen können, dass un… https://t.co/QFuW8VCrPJ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1170947446744190976)|
-|06.09.2019|#Aufwachfrage: Wie war bei deinen Job-/Rollenwechseln bisher die prozentuelle Verteilung zwischen 
-a) nix wie weg v… https://t.co/wvvTwarzOt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1169860301153456129)|
+|06.09.2019|#Aufwachfrage: Wie war bei deinen Job-/Rollenwechseln bisher die prozentuelle Verteilung zwischen <br/>a) nix wie weg v… https://t.co/wvvTwarzOt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1169860301153456129)|
 |05.09.2019|#Aufwachfrage: Warum verabreichen so viele Ärzte homöopathische Mittel, obwohl sie eine wissenschaftlich fundierte… https://t.co/R2C4sw2Wq6|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1169497953838489600)|
 |05.09.2019|#Aufwachfrage: Warum verabreichen so viele Ärzte homöopathische Mittel, obwohl sie eine wissenschaftlich fundierte… https://t.co/R2C4sw2Wq6|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1169497953838489600)|
 |03.09.2019|#Aufwachfrage: Wie passen #Hoffnung und #Realismus zusammen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1168773138995433472)|
 |02.09.2019|#Aufwachfrage: Was versuchst du an deinem ersten Arbeitstag nach dem Sommerurlaub auf KEINEN FALL zu tun?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1168410796881264640)|
 |02.09.2019|#Aufwachfrage: Was versuchst du an deinem ersten Arbeitstag nach dem Sommerurlaub auf KEINEN FALL zu tun?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1168410796881264640)|
 |30.08.2019|#Aufwachfrage: Wofür hast du #Talent, obwohl es dir keinen Spaß macht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1167325495773417476)|
-|29.08.2019|#Aufwachfrage: Gibt es #Talent oder ist alles reine Übungssache?
-(inspiriert von einer Twitter-Diskussion gestern: https://t.co/eFFiaKa4u4)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1166961176791703553)|
-|29.08.2019|#Aufwachfrage: Gibt es #Talent oder ist alles reine Übungssache?
-(inspiriert von einer Twitter-Diskussion gestern: https://t.co/eFFiaKa4u4)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1166961176791703553)|
+|29.08.2019|#Aufwachfrage: Gibt es #Talent oder ist alles reine Übungssache?<br/>(inspiriert von einer Twitter-Diskussion gestern: https://t.co/eFFiaKa4u4)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1166961176791703553)|
+|29.08.2019|#Aufwachfrage: Gibt es #Talent oder ist alles reine Übungssache?<br/>(inspiriert von einer Twitter-Diskussion gestern: https://t.co/eFFiaKa4u4)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1166961176791703553)|
 |28.08.2019|#Aufwachfrage: Welches liebenswerte kleine #Ritual gibt es in deinem Unternehmen (und vermutlich nur dort)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1166598793183322112)|
 |28.08.2019|#Aufwachfrage: Welches liebenswerte kleine #Ritual gibt es in deinem Unternehmen (und vermutlich nur dort)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1166598793183322112)|
 |27.08.2019|#Aufwachfrage: Was war/ist diesen Sommer deine #Urlaubslektüre (Genre egal)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1166236456119087104)|
 |26.08.2019|#Aufwachfrage: Welcher Gedanke schießt Dir durch den Kopf, wenn Du den Begriff “#Familienunternehmen” liest oder hö… https://t.co/myup4kwUES|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1165878960451989504)|
-|23.08.2019|#Aufwachfrage: Was ist heutzutage wichtiger: #ShareholderValue oder #StakeholderValue?
----
-(#CustomerValue sei mal… https://t.co/wMxWIGJaeS|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1164786923652571136)|
+|23.08.2019|#Aufwachfrage: Was ist heutzutage wichtiger: #ShareholderValue oder #StakeholderValue?<br/>---<br/>(#CustomerValue sei mal… https://t.co/wMxWIGJaeS|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1164786923652571136)|
 |22.08.2019|@GerritBeine Bei Wörtern denke ich oft über verschiedene Bedeutungen und Sichtweisen nach. Resultat ist oft eine… https://t.co/dp0XYgs2Ww|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1164491105808916480)|
 |22.08.2019|#Aufwachfrage: Wie viele unterschiedliche Perspektiven betrachtest du, wenn du Worte oder Statements hörst oder lie… https://t.co/f2TsijH9Hc|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1164424465171787776)|
 |21.08.2019|#Aufwachfrage: Wie schafft man es, #Grönland zu kaufen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1164071533670785025)|
 |20.08.2019|#Aufwachfrage: Wofür sollte es in unseren Unternehmen gebührenpflichtige Verwarnungen geben? https://t.co/duhtPKqMmO|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1163707772644581376)|
 |19.08.2019|#Aufwachfrage: Welcher Gedanke schießt Dir durch den Kopf, wenn Du den Begriff “#Startup” liest oder hörst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1163349318503473152)|
 |19.08.2019|#Aufwachfrage: Welcher Gedanke schießt Dir durch den Kopf, wenn Du den Begriff “#Startup” liest oder hörst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1163349318503473152)|
-|16.08.2019|#Aufwachfrage: Welcher Gedanke schießt Dir durch den Kopf, wenn Du das Konstrukt ""#Konzern"" liest oder hörst?
-(Dank… https://t.co/PFWRRC3LNW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1162250355620532225)|
-|16.08.2019|#Aufwachfrage: Welcher Gedanke schießt Dir durch den Kopf, wenn Du das Konstrukt ""#Konzern"" liest oder hörst?
-(Dank… https://t.co/PFWRRC3LNW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1162250355620532225)|
+|16.08.2019|#Aufwachfrage: Welcher Gedanke schießt Dir durch den Kopf, wenn Du das Konstrukt "#Konzern" liest oder hörst?<br/>(Dank… https://t.co/PFWRRC3LNW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1162250355620532225)|
+|16.08.2019|#Aufwachfrage: Welcher Gedanke schießt Dir durch den Kopf, wenn Du das Konstrukt "#Konzern" liest oder hörst?<br/>(Dank… https://t.co/PFWRRC3LNW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1162250355620532225)|
 |15.08.2019|#Aufwachfrage: Bist du politisch so aktiv, wie dein Gewissen es dir nahelegt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1161887749173063681)|
-|14.08.2019|#Aufwachfrage: Welche wichtige Frage an dich konntest du in letzter Zeit nicht beantworten?
-(Danke an @svnwnk für d… https://t.co/3Nqq7VhIjl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1161535556620312576)|
+|14.08.2019|#Aufwachfrage: Welche wichtige Frage an dich konntest du in letzter Zeit nicht beantworten?<br/>(Danke an @svnwnk für d… https://t.co/3Nqq7VhIjl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1161535556620312576)|
 |13.08.2019|#Aufwachfrage: Mit welchem Satz bittet du um #Verzeihung?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1161163050776485889)|
 |12.08.2019|#Aufwachfrage: Ist Zuckerkonsum das neue Rauchen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1160802771567861760)|
-|09.08.2019|#Aufwachfrage: Welche dieser #MeetingCreatures bist du in Meetings am ehesten?
-https://t.co/Ti2I2z2sni
-#ModerationDojo|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1159708394548281344)|
+|09.08.2019|#Aufwachfrage: Welche dieser #MeetingCreatures bist du in Meetings am ehesten?<br/>https://t.co/Ti2I2z2sni<br/>#ModerationDojo|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1159708394548281344)|
 |08.08.2019|#Aufwachfrage: Was ist für dich gesellschaftlich mittlerweile normal, was du vor 15 Jahren noch als völlig absurd e… https://t.co/w0WgOrNIfB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1159351109091241984)|
-|07.08.2019|#Aufwachfrage: Was bereitet dir #Eustress?
-(Danke für die Frage an @StM0n)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1158988653852598272)|
+|07.08.2019|#Aufwachfrage: Was bereitet dir #Eustress?<br/>(Danke für die Frage an @StM0n)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1158988653852598272)|
 |06.08.2019|#Aufwachfrage: Was hast du im Kindergarten für's Leben gelernt? https://t.co/x7SkFCL8eI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1158626264212807680)|
 |05.08.2019|#Aufwachfrage: Wo bist du geselliger - im Privatleben oder im Job?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1158263873713184769)|
-|02.08.2019|#Aufwachfrage: Was ist dein #Facilitator Tipp/Hack für ein noch besseres #BallPointGame bei #Scrum Trainings?
-#agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1157176776700964864)|
+|02.08.2019|#Aufwachfrage: Was ist dein #Facilitator Tipp/Hack für ein noch besseres #BallPointGame bei #Scrum Trainings?<br/>#agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1157176776700964864)|
 |01.08.2019|#Aufwachfrage: Was macht deiner Meinung nach Menschen sexy?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1156814318840832002)|
 |01.08.2019|#Aufwachfrage: Was macht deiner Meinung nach Menschen sexy?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1156814318840832002)|
 |31.07.2019|#Aufwachfrage: Was macht es mit dir, wenn Teil einer großen Menschenansammlung bist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1156451986985955329)|
@@ -892,21 +741,17 @@ https://t.co/Ti2I2z2sni
 |25.07.2019|#Aufwachfrage: Hast du deine #Knutschflecken eher versteckt oder gezeigt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1154277619791224832)|
 |24.07.2019|#Aufwachfrage: Wann hast du im Job zuletzt dein Mißfallen mit deutlicher Worten verbal und öffentlich geäußert?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1153915274992783360)|
 |23.07.2019|#Aufwachfrage: Woran erkennst du, dass ein Team Reife hat?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1153552851773337601)|
-|22.07.2019|#Aufwachfrage: Was ist nötig, damit #Kanban auch im komplexen Umfeld gut funktioniert?
-
-(die Frage ist ernst gemein… https://t.co/TshVFGXesn|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1153190503372021760)|
+|22.07.2019|#Aufwachfrage: Was ist nötig, damit #Kanban auch im komplexen Umfeld gut funktioniert?<br/><br/>(die Frage ist ernst gemein… https://t.co/TshVFGXesn|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1153190503372021760)|
 |20.07.2019|#Aufwachfrage zum 20. Juli: Hättest du #Hitler ermordet, wenn du an Stelle von Claus Schenk Graf von #Stauffenberg… https://t.co/7x6KUa1OT9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1152511761880424448)|
 |19.07.2019|#Aufwachfrage: Welches Ereignis würde heute eine ähnlich große Wirkung bei der Menscheit entfalten wie damals die e… https://t.co/A8jkxT1ZwX|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1152103289560936448)|
 |18.07.2019|#Aufwachfrage: Bei welchem deiner selbstdefinierten privaten Use Cases hast du dir ein #UXFail konstruiert, das du… https://t.co/90HASBNTjp|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1151740886709080064)|
 |18.07.2019|#Aufwachfrage: Bei welchem deiner selbstdefinierten privaten Use Cases hast du dir ein #UXFail konstruiert, das du… https://t.co/90HASBNTjp|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1151740886709080064)|
 |17.07.2019|#Aufwachfrage: Wie  viele von 10 deiner Ideen verwirklichst du?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1151378498369531904)|
 |16.07.2019|#Aufwachfrage: Wie klar ist dir dein nächster Karriereschritt schon?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1151016131785891841)|
-|15.07.2019|#Aufwachfrage: Wie groß ist dein ungefährer CO2-Fußabdruck?
-(z.b mit dem #Klimarechner des @WWF_Deutschland: 35 Fra… https://t.co/6OEmD1QTGm|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1150652741724905472)|
+|15.07.2019|#Aufwachfrage: Wie groß ist dein ungefährer CO2-Fußabdruck?<br/>(z.b mit dem #Klimarechner des @WWF_Deutschland: 35 Fra… https://t.co/6OEmD1QTGm|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1150652741724905472)|
 |12.07.2019|#Aufwachfrage: Was würdest du tun, wenn Geld keine Rolle spielte?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1149566582139441152)|
 |11.07.2019|#Aufwachfrage: Was war das Wertvollste, das du inhaltlich in der Schule gelernt hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1149204212330446848)|
-|10.07.2019|#WakeUpQuestion: Are you #TPTT (#ToiletPaperTearingType) Type A or B?
-#Aufwachfrage https://t.co/NEWVBgfjej|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1148841870849654784)|
+|10.07.2019|#WakeUpQuestion: Are you #TPTT (#ToiletPaperTearingType) Type A or B?<br/>#Aufwachfrage https://t.co/NEWVBgfjej|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1148841870849654784)|
 |09.07.2019|#Aufwachfrage: Welchen Satz hättest du an Stelle von #NeilArmstrong bei deinem ersten Schritt auf dem Mond sagen wo… https://t.co/btm3mfMzla|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1148479424855203840)|
 |09.07.2019|#Aufwachfrage: Welchen Satz hättest du an Stelle von #NeilArmstrong bei deinem ersten Schritt auf dem Mond sagen wo… https://t.co/btm3mfMzla|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1148479424855203840)|
 |08.07.2019|#Aufwachfrage: Wann fängt etwas an, zum #Abenteuer zu werden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1148117056224710658)|
@@ -914,99 +759,70 @@ https://t.co/Ti2I2z2sni
 |05.07.2019|#Aufwachfrage: Machst du Masterpläne?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1147029846964523009)|
 |04.07.2019|#Aufwachfrage: Ist es verwerflich, sich über Götter lustig zu machen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1146667488710680576)|
 |04.07.2019|#Aufwachfrage: Ist es verwerflich, sich über Götter lustig zu machen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1146667488710680576)|
-|03.07.2019|@ba2019 Zu der #Aufwachfrage fällt mir aus #FightClub ein: “Wir sind alle Teil vom selben Komposthaufen.”
-Welche Stelle meintest DU?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1146308171386052608)|
+|03.07.2019|@ba2019 Zu der #Aufwachfrage fällt mir aus #FightClub ein: “Wir sind alle Teil vom selben Komposthaufen.”<br/>Welche Stelle meintest DU?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1146308171386052608)|
 |03.07.2019|#Aufwachfrage: Bist du etwas Besonderes?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1146305111959973888)|
 |03.07.2019|#Aufwachfrage: Bist du etwas Besonderes?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1146305111959973888)|
 |02.07.2019|#Aufwachfrage: Welche #Privilegien hast du in deinem Job?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1145942761314619392)|
 |01.07.2019|@FrBachmann @marjokef I’m with you, @FrBachmann. This question was about all the absurdity of absolute categories.… https://t.co/iKbnYOBtTW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1145598337212719107)|
 |01.07.2019|@FrBachmann @marjokef I’m with you, @FrBachmann. This question was about all the absurdity of absolute categories.… https://t.co/iKbnYOBtTW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1145598337212719107)|
-|01.07.2019|#Aufwachfrage: Hat dein Spiegelbild eher #Lachfalten oder #Tränensäcke?
-(Danke für die Frage an @ArminSchubert)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1145580376116645888)|
+|01.07.2019|#Aufwachfrage: Hat dein Spiegelbild eher #Lachfalten oder #Tränensäcke?<br/>(Danke für die Frage an @ArminSchubert)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1145580376116645888)|
 |28.06.2019|#Aufwachfrage: Wo ist #Heimat für dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1144493160820703232)|
 |28.06.2019|#Aufwachfrage: Wo ist #Heimat für dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1144493160820703232)|
 |27.06.2019|#Aufwachfrage: Wo/wie in deinem Körper äußert es sich, wenn bei dir grad etwas sehr gut läuft?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1144130813732249601)|
 |27.06.2019|#Aufwachfrage: Wo/wie in deinem Körper äußert es sich, wenn bei dir grad etwas sehr gut läuft?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1144130813732249601)|
-|26.06.2019|#Aufwachfrage: Was macht #Macht mit dir?
-(inspiriert vom Dossier ""Macht"" in der aktuellen Ausgabe von @DIEZEIT) https://t.co/MphXvWtc1l|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143768397106372609)|
-|25.06.2019|Mögliche zwei Kategorien von Menschen:
-a) Menschen, die schon erfahren durften, dass die Menschheit im Kern gut ist… https://t.co/nB1JNQFcO7|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143432496492744705)|
+|26.06.2019|#Aufwachfrage: Was macht #Macht mit dir?<br/>(inspiriert vom Dossier "Macht" in der aktuellen Ausgabe von @DIEZEIT) https://t.co/MphXvWtc1l|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143768397106372609)|
+|25.06.2019|Mögliche zwei Kategorien von Menschen:<br/>a) Menschen, die schon erfahren durften, dass die Menschheit im Kern gut ist… https://t.co/nB1JNQFcO7|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143432496492744705)|
 |25.06.2019|RT @coffeeaddict_nl: #aufwachfrage wie bekomme ich das hier agilisiert? meine Frau scheint mit Pareto nicht einverstanden. https://t.co/a4R…|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143431293205733376)|
 |25.06.2019|#Aufwachfrage: Wenn du die absurde Aufgabe hättest, die Weltbevölkerung in zwei Gruppen einzuteilen, was wären deine beiden Kategorien?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143405965020160001)|
 |25.06.2019|#Aufwachfrage: Wenn du die absurde Aufgabe hättest, die Weltbevölkerung in zwei Gruppen einzuteilen, was wären deine beiden Kategorien?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143405965020160001)|
-|24.06.2019|#Aufwachfrage: Woran merkst du nach einer Konferenz/Weiterbildung, dass du etwas gelernt hast?
-#accde19|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143043635325415424)|
+|24.06.2019|#Aufwachfrage: Woran merkst du nach einer Konferenz/Weiterbildung, dass du etwas gelernt hast?<br/>#accde19|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1143043635325415424)|
 |20.06.2019|#Aufwachfrage: Wie oft in einer typischen Woche denkst du, eventuell nicht genug zu sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1141594107720163329)|
-|19.06.2019|#Aufwachfrage: In welches Land würdest du auswandern, wenn das mal Thema werden sollte?
-(inspiriert durch den Podca… https://t.co/Az0DsTlt1T|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1141231668759605248)|
+|19.06.2019|#Aufwachfrage: In welches Land würdest du auswandern, wenn das mal Thema werden sollte?<br/>(inspiriert durch den Podca… https://t.co/Az0DsTlt1T|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1141231668759605248)|
 |17.06.2019|#Aufwachfrage: Was ist eigentlich der Unterschied zwischen #Bescheidenheit und #Demut?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1140506885671571456)|
 |14.06.2019|#Aufwachfrage: Wobei verhältst du dich, als ob du schon "Ri" erreicht hättest, obwohl du eigentlich noch nichtmal "… https://t.co/9p2Mw08nFd|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1139419800231268352)|
-|13.06.2019|#Aufwachfrage: Bist du von Nutzen?
-(Danke für die Frage an @joergpreiss)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1139057351951097863)|
-|12.06.2019|#Aufwachfrage: In welchen Situationen könnte es hilfreich sein, NICHT miteinander zu reden?
-#redenUndSo https://t.co/Fkunaz4Bh4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1138694945475354624)|
+|13.06.2019|#Aufwachfrage: Bist du von Nutzen?<br/>(Danke für die Frage an @joergpreiss)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1139057351951097863)|
+|12.06.2019|#Aufwachfrage: In welchen Situationen könnte es hilfreich sein, NICHT miteinander zu reden?<br/>#redenUndSo https://t.co/Fkunaz4Bh4|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1138694945475354624)|
 |11.06.2019|#Aufwachfrage: Wobei lässt du dich fernsteuern?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1138332539159044097)|
-|07.06.2019|#Aufwachfrage: Welcher Song wäre passend als #Soundtrack für deine Woche bisher?
-#SoundtrackOfMyLife|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1136883063084986368)|
+|07.06.2019|#Aufwachfrage: Welcher Song wäre passend als #Soundtrack für deine Woche bisher?<br/>#SoundtrackOfMyLife|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1136883063084986368)|
 |06.06.2019|#Aufwachfrage: Bei welcher Sache im Job ist bei dir der Groschen erst krass spät gefallen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1136526219711844352)|
-|05.06.2019|#Aufwachfrage: Was würde passieren, wenn #Agile Coaches streiken würden?
-(Danke für die Frage an @GerritBeine und d… https://t.co/iE19bY6epP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1136158270803120128)|
-|05.06.2019|#Aufwachfrage: Was würde passieren, wenn #Agile Coaches streiken würden?
-(Danke für die Frage an @GerritBeine und d… https://t.co/iE19bY6epP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1136158270803120128)|
+|05.06.2019|#Aufwachfrage: Was würde passieren, wenn #Agile Coaches streiken würden?<br/>(Danke für die Frage an @GerritBeine und d… https://t.co/iE19bY6epP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1136158270803120128)|
+|05.06.2019|#Aufwachfrage: Was würde passieren, wenn #Agile Coaches streiken würden?<br/>(Danke für die Frage an @GerritBeine und d… https://t.co/iE19bY6epP|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1136158270803120128)|
 |04.06.2019|#Aufwachfrage: Welche drei Gerüche schaffen es in die Liste deiner absoluten Lieblingsgerüche?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1135795876784463873)|
 |03.06.2019|#Aufwachfrage: Wie viele Faxe hast du in den letzten 3 Jahren verschickt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1135433437597315073)|
 |30.05.2019|#Aufwachfrage: In welchen Situationen bleibst du zu lange im mittlerweile schon zu heiß gewordenen Wasser sitzen, o… https://t.co/wrndazPOp6|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1133983939176087557)|
-|29.05.2019|#Aufwachfrage: Wie verliert man sich?
-(""Manchmal sind wir verloren"" gesehen im Schlosspark #Erlangen) https://t.co/92LD7cqdYm|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1133621497132703744)|
+|29.05.2019|#Aufwachfrage: Wie verliert man sich?<br/>("Manchmal sind wir verloren" gesehen im Schlosspark #Erlangen) https://t.co/92LD7cqdYm|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1133621497132703744)|
 |28.05.2019|#Aufwachfrage: Bei welchen Gelegenheiten fehlt dir #Demut?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1133259106637221888)|
 |27.05.2019|#Aufwachfrage: Gehörst du gefühlt öfter der #Mehrheit oder einer #Minderheit an?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1132892019716759552)|
-|25.05.2019|#THC (Twitter Hugs Creator): 
-A few funny tweets related to the #Aufwachfrage were enough to make @yr81 and… https://t.co/BNyoDMcA1F|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1132214376239386624)|
-|25.05.2019|#THC (Twitter Hugs Creator): 
-A few funny tweets related to the #Aufwachfrage were enough to make @yr81 and… https://t.co/BNyoDMcA1F|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1132214376239386624)|
+|25.05.2019|#THC (Twitter Hugs Creator): <br/>A few funny tweets related to the #Aufwachfrage were enough to make @yr81 and… https://t.co/BNyoDMcA1F|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1132214376239386624)|
+|25.05.2019|#THC (Twitter Hugs Creator): <br/>A few funny tweets related to the #Aufwachfrage were enough to make @yr81 and… https://t.co/BNyoDMcA1F|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1132214376239386624)|
 |24.05.2019|#Aufwachfrage: Was funktioniert bei dir erstaunlicherweise nur bei ausgeschaltetem Schutzschild?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1131809593171087360)|
-|22.05.2019|#Aufwachfrage: Was braucht es, damit es +10 besser wird?
-(Danke an @dot_ute für die Frage und den zugehörigen Blogb… https://t.co/K3oG2Lprhv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1131084789207977984)|
-|22.05.2019|#Aufwachfrage: Was braucht es, damit es +10 besser wird?
-(Danke an @dot_ute für die Frage und den zugehörigen Blogb… https://t.co/K3oG2Lprhv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1131084789207977984)|
+|22.05.2019|#Aufwachfrage: Was braucht es, damit es +10 besser wird?<br/>(Danke an @dot_ute für die Frage und den zugehörigen Blogb… https://t.co/K3oG2Lprhv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1131084789207977984)|
+|22.05.2019|#Aufwachfrage: Was braucht es, damit es +10 besser wird?<br/>(Danke an @dot_ute für die Frage und den zugehörigen Blogb… https://t.co/K3oG2Lprhv|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1131084789207977984)|
 |21.05.2019|#Aufwachfrage: Was lohnt es sich, zu zählen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1130723454221725698)|
 |20.05.2019|In der Logik des Europäischen Gerichtshofs müssten auch alle mehr als 200 Mio Arbeitnehmer der EU zwingend in einer… https://t.co/i8XXBmvSb9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1130550627359252483)|
 |20.05.2019|Ich werde von meinem Arbeitgeber NICHT ausgebeutet und bin mündig, in Sachen #Arbeitszeit auf mich selber aufzupass… https://t.co/CsMyPNmpNp|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1130549354354368513)|
 |20.05.2019|Ich werde von meinem Arbeitgeber NICHT ausgebeutet und bin mündig, in Sachen #Arbeitszeit auf mich selber aufzupass… https://t.co/CsMyPNmpNp|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1130549354354368513)|
 |20.05.2019|#Aufwachfrage: Wie bewertest du die Entscheidung des Europäischen Gerichtshofs, wonach ein Arbeitgeber alle Arbeits… https://t.co/LMox2YfLZZ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1130360072075403269)|
 |17.05.2019|#Aufwachfrage; Was war diese Woche zum Glück noch gar kein Thema?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1129272863180173313)|
-|16.05.2019|#WakeUpQuestion: What was the hardest thing you experienced in letting go of #Micromanagement?
-(inspired by the boo… https://t.co/ksSDvQvu48|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1128910542658265088)|
-|15.05.2019|#Aufwachfrage: Woran erkennst du, ob jemand ein/e gute/r #Projektleiter/#Projektleiterin (bewusst kein #ProductOwner) ist?
-#PMWelt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1128548066770944002)|
-|14.05.2019|#Aufwachfrage: Was muss ein guter Agile Coach mitbringen?
-(inspiriert durch das Gespräch zwischen @JudithAndresen u… https://t.co/Qnov9ojj0d|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1128156842981580801)|
+|16.05.2019|#WakeUpQuestion: What was the hardest thing you experienced in letting go of #Micromanagement?<br/>(inspired by the boo… https://t.co/ksSDvQvu48|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1128910542658265088)|
+|15.05.2019|#Aufwachfrage: Woran erkennst du, ob jemand ein/e gute/r #Projektleiter/#Projektleiterin (bewusst kein #ProductOwner) ist?<br/>#PMWelt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1128548066770944002)|
+|14.05.2019|#Aufwachfrage: Was muss ein guter Agile Coach mitbringen?<br/>(inspiriert durch das Gespräch zwischen @JudithAndresen u… https://t.co/Qnov9ojj0d|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1128156842981580801)|
 |13.05.2019|#Aufwachfrage: Was könnte, nach jetzigem Kenntnisstand, das Highlight deiner Woche werden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1127823326989176833)|
-|10.05.2019|#WakeUpQuestion: What aspect of #Agile is just #SnakeOil as far as you can tell?
-#Aufwachfrage #schlangenöl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126736146539503617)|
-|10.05.2019|#WakeUpQuestion: What aspect of #Agile is just #SnakeOil as far as you can tell?
-#Aufwachfrage #schlangenöl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126736146539503617)|
-|09.05.2019|#Aufwachfrage: Bist du ein ""Hugger""?
-(inspiriert durch die #Blinks zum Buch Human Touch von Rebecca Böhme)… https://t.co/Xj4z5Y5cD9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126374145716117505)|
-|08.05.2019|#Aufwachfrage: Wann hast du zuletzt dein Smartphone bedient, während du gerade ein Auto gefahren hast?
-(an der rote… https://t.co/uOsMDRj6mA|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126011384196685824)|
-|07.05.2019|#Aufwachfrage: Hältst du dich an die Timeboxes, die du dir (nicht deinem Team) selber gibst?
-#zeitmanagement|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1125648983903305728)|
-|07.05.2019|#Aufwachfrage: Hältst du dich an die Timeboxes, die du dir (nicht deinem Team) selber gibst?
-#zeitmanagement|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1125648983903305728)|
+|10.05.2019|#WakeUpQuestion: What aspect of #Agile is just #SnakeOil as far as you can tell?<br/>#Aufwachfrage #schlangenöl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126736146539503617)|
+|10.05.2019|#WakeUpQuestion: What aspect of #Agile is just #SnakeOil as far as you can tell?<br/>#Aufwachfrage #schlangenöl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126736146539503617)|
+|09.05.2019|#Aufwachfrage: Bist du ein "Hugger"?<br/>(inspiriert durch die #Blinks zum Buch Human Touch von Rebecca Böhme)… https://t.co/Xj4z5Y5cD9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126374145716117505)|
+|08.05.2019|#Aufwachfrage: Wann hast du zuletzt dein Smartphone bedient, während du gerade ein Auto gefahren hast?<br/>(an der rote… https://t.co/uOsMDRj6mA|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1126011384196685824)|
+|07.05.2019|#Aufwachfrage: Hältst du dich an die Timeboxes, die du dir (nicht deinem Team) selber gibst?<br/>#zeitmanagement|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1125648983903305728)|
+|07.05.2019|#Aufwachfrage: Hältst du dich an die Timeboxes, die du dir (nicht deinem Team) selber gibst?<br/>#zeitmanagement|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1125648983903305728)|
 |06.05.2019|#Aufwachfrage: Was ist der Unterschied zwischen einer sehr guten #Idee und einer #Innovation?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1125286575120764928)|
-|03.05.2019|#Aufwachfrage: Wobei im Job bist du #Leader und wobei #Follower?
-#leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1124199454838611969)|
+|03.05.2019|#Aufwachfrage: Wobei im Job bist du #Leader und wobei #Follower?<br/>#leadership|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1124199454838611969)|
 |02.05.2019|#Aufwachfrage: Welches Fachbuch/Sachbuch fandest du ganz und gar nicht empfehlenswert bzw. gar richtig schlecht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1123837059842674690)|
 |01.05.2019|#Aufwachfrage: Was ist Arbeit?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1123463580286947332)|
 |30.04.2019|#Aufwachfrage: Wie unterscheidest du im Job "gut genug" von "perfekt"?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1123112312284569600)|
-|29.04.2019|#Aufwachfrage: Kann es sein, dass wir IT-Experten manchmal ""verwöhnte kleine Bitches"" sind?
-(inspiriert durch einen… https://t.co/qWUmVxxAId|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1122780627781267468)|
-|26.04.2019|#Aufwachfrage: Wie erklärst du einem Nicht-Tekkie das ""Was"" und ""Wozu"" von #DevOps?
-#dvoc19 @devops_camp|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1121662695869042690)|
+|29.04.2019|#Aufwachfrage: Kann es sein, dass wir IT-Experten manchmal "verwöhnte kleine Bitches" sind?<br/>(inspiriert durch einen… https://t.co/qWUmVxxAId|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1122780627781267468)|
+|26.04.2019|#Aufwachfrage: Wie erklärst du einem Nicht-Tekkie das "Was" und "Wozu" von #DevOps?<br/>#dvoc19 @devops_camp|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1121662695869042690)|
 |25.04.2019|#Aufwachfrage: Was hast du dir gestern Gutes getan?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1121300392112005120)|
-|24.04.2019|#Aufwachfrage: Erwartest du zu viel?
-(Danke für die Frage an @DivokyRoman + @GenugAnouk)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1120937957647581185)|
+|24.04.2019|#Aufwachfrage: Erwartest du zu viel?<br/>(Danke für die Frage an @DivokyRoman + @GenugAnouk)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1120937957647581185)|
 |23.04.2019|#Aufwachfrage: Hattest du als Nicht-Christ ein schlechtes Gewissen, wegen zwei religiösen Feiertagen nicht arbeiten zu müssen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1120575607694417922)|
 |22.04.2019|#Aufwachfrage: Welch's Buch hast du dich bis jetzt nicht zu empfehlen getraut?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1120213162983395328)|
 |19.04.2019|#Aufwachfrage: Ist das Leben #fair?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1119126039576186881)|
@@ -1014,40 +830,27 @@ A few funny tweets related to the #Aufwachfrage were enough to make @yr81 and…
 |18.04.2019|#Aufwachfrage: Wie könnte der erste Satz in einem #Wikipedia-Artikel über dich selbst lauten? https://t.co/IwMK0kdCwt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1118763655196217345)|
 |17.04.2019|#Aufwachfrage: Wie hebelst du notorische #Zyniker aus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1118401214469824518)|
 |16.04.2019|#Aufwachfrage: Was würdest DU der Welt gerne als deinen ganz persönlichen Beitrag zum #Weltkulturerbe vererben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1118038866492121088)|
-|15.04.2019|#Aufwachfrage: Wie kann man sich verletzlich zeigen, ohne verletzt zu werden?
-(inspiriert durch die Bücher von @BreneBrown)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1117676474830606336)|
+|15.04.2019|#Aufwachfrage: Wie kann man sich verletzlich zeigen, ohne verletzt zu werden?<br/>(inspiriert durch die Bücher von @BreneBrown)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1117676474830606336)|
 |12.04.2019|#Aufwachfrage: Bei welcher Tätigkeit kannst du dir nicht mehr vorstellen, wie du die früher ohne Smartphone hingekriegt hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1116589266170048512)|
 |12.04.2019|#Aufwachfrage: Bei welcher Tätigkeit kannst du dir nicht mehr vorstellen, wie du die früher ohne Smartphone hingekriegt hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1116589266170048512)|
 |11.04.2019|#Aufwachfrage: Was tust du im Job nur heimlich, obwohl es eigentlich etwas Gutes ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1116226943920345088)|
-|10.04.2019|#Aufwachfrage:  Im wievielten Gang fährst du gerade im Job?
-(Wortspiele über Automatik- u Elektro-Autos dürfen gerne übersprungen werden).|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1115864522517094403)|
-|10.04.2019|#Aufwachfrage:  Im wievielten Gang fährst du gerade im Job?
-(Wortspiele über Automatik- u Elektro-Autos dürfen gerne übersprungen werden).|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1115864522517094403)|
-|09.04.2019|#Aufwachfrage: Wie könnten wir den #Flurfunk in unseren Firmen in etwas überwiegend Positives hacken?
-#CultureHacking #newWork|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1115502099595440128)|
+|10.04.2019|#Aufwachfrage:  Im wievielten Gang fährst du gerade im Job?<br/>(Wortspiele über Automatik- u Elektro-Autos dürfen gerne übersprungen werden).|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1115864522517094403)|
+|10.04.2019|#Aufwachfrage:  Im wievielten Gang fährst du gerade im Job?<br/>(Wortspiele über Automatik- u Elektro-Autos dürfen gerne übersprungen werden).|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1115864522517094403)|
+|09.04.2019|#Aufwachfrage: Wie könnten wir den #Flurfunk in unseren Firmen in etwas überwiegend Positives hacken?<br/>#CultureHacking #newWork|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1115502099595440128)|
 |08.04.2019|#Aufwachfrage: Was würden deine Mitmenschen als deinen #SignatureMove bezeichnen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1115139792646365184)|
 |05.04.2019|#Aufwachfrage: Welche Art #Klimawandel findet momentan in deiner Firma statt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1114052582887034880)|
 |05.04.2019|#Aufwachfrage: Welche Art #Klimawandel findet momentan in deiner Firma statt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1114052582887034880)|
 |04.04.2019|#Aufwachfrage: Von welcher inneren Ressource hast du immer noch ein bisschen mehr, obwohl du glaubtest, sie müsste… https://t.co/eDemigoy2K|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1113690237379796997)|
 |04.04.2019|#Aufwachfrage: Von welcher inneren Ressource hast du immer noch ein bisschen mehr, obwohl du glaubtest, sie müsste… https://t.co/eDemigoy2K|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1113690237379796997)|
-|03.04.2019|#Aufwachfrage: Was können wir vom Britischen Unterhaus über #Demokratie lernen?
-#Brexit|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1113327774943580168)|
-|03.04.2019|#Aufwachfrage: Was können wir vom Britischen Unterhaus über #Demokratie lernen?
-#Brexit|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1113327774943580168)|
-|02.04.2019|#Aufwachfrage: Wann hast du das letzte Mal über deine eigene Dummheit gelacht?
-(inspiriert durch den Song ""Das letz… https://t.co/DGHlHdgnJW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112965443067809792)|
-|02.04.2019|#Aufwachfrage: Wann hast du das letzte Mal über deine eigene Dummheit gelacht?
-(inspiriert durch den Song ""Das letz… https://t.co/DGHlHdgnJW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112965443067809792)|
-|01.04.2019|#WakeUpQuestion: What kind of #IKEA-builder are you, Type A or Type B?
-#Aufwachfrage https://t.co/22lTwXqc8n|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112603048763969536)|
-|01.04.2019|#WakeUpQuestion: What kind of #IKEA-builder are you, Type A or Type B?
-#Aufwachfrage https://t.co/22lTwXqc8n|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112603048763969536)|
-|29.03.2019|#Aufwachfrage: Wie vielen Leuten würdest du kündigen, wenn du plötzlich die Unternehmensleitung hättest?
-Für dieses… https://t.co/Zf20nnpCP0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1111530992840441856)|
-|29.03.2019|#Aufwachfrage: Wie vielen Leuten würdest du kündigen, wenn du plötzlich die Unternehmensleitung hättest?
-Für dieses… https://t.co/Zf20nnpCP0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1111530992840441856)|
-|28.03.2019|#Aufwachfrage: Welchen Aspekt von #OldWork sollten wir uns auf dem Weg zu #newWork auf jeden Fall bewahren?
-CC @MkKueper @derDoubleD|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1111168623106818049)|
+|03.04.2019|#Aufwachfrage: Was können wir vom Britischen Unterhaus über #Demokratie lernen?<br/>#Brexit|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1113327774943580168)|
+|03.04.2019|#Aufwachfrage: Was können wir vom Britischen Unterhaus über #Demokratie lernen?<br/>#Brexit|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1113327774943580168)|
+|02.04.2019|#Aufwachfrage: Wann hast du das letzte Mal über deine eigene Dummheit gelacht?<br/>(inspiriert durch den Song "Das letz… https://t.co/DGHlHdgnJW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112965443067809792)|
+|02.04.2019|#Aufwachfrage: Wann hast du das letzte Mal über deine eigene Dummheit gelacht?<br/>(inspiriert durch den Song "Das letz… https://t.co/DGHlHdgnJW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112965443067809792)|
+|01.04.2019|#WakeUpQuestion: What kind of #IKEA-builder are you, Type A or Type B?<br/>#Aufwachfrage https://t.co/22lTwXqc8n|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112603048763969536)|
+|01.04.2019|#WakeUpQuestion: What kind of #IKEA-builder are you, Type A or Type B?<br/>#Aufwachfrage https://t.co/22lTwXqc8n|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1112603048763969536)|
+|29.03.2019|#Aufwachfrage: Wie vielen Leuten würdest du kündigen, wenn du plötzlich die Unternehmensleitung hättest?<br/>Für dieses… https://t.co/Zf20nnpCP0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1111530992840441856)|
+|29.03.2019|#Aufwachfrage: Wie vielen Leuten würdest du kündigen, wenn du plötzlich die Unternehmensleitung hättest?<br/>Für dieses… https://t.co/Zf20nnpCP0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1111530992840441856)|
+|28.03.2019|#Aufwachfrage: Welchen Aspekt von #OldWork sollten wir uns auf dem Weg zu #newWork auf jeden Fall bewahren?<br/>CC @MkKueper @derDoubleD|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1111168623106818049)|
 |27.03.2019|#Aufwachfrage: Verbietest du dir bestimmte Gedanken? #ThoughtPolice|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1110806170091118593)|
 |26.03.2019|#Aufwachfrage: Würdest du dein Gehalt offenlegen, wenn es hülfe, in deinem Unternehmen den Gender-Pay-Gap zu Frauen… https://t.co/6xNdYHEI2F|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1110443810713157632)|
 |26.03.2019|#Aufwachfrage: Würdest du dein Gehalt offenlegen, wenn es hülfe, in deinem Unternehmen den Gender-Pay-Gap zu Frauen… https://t.co/6xNdYHEI2F|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1110443810713157632)|
@@ -1057,25 +860,20 @@ CC @MkKueper @derDoubleD|[Twitter URL](http://twitter.com/udowiegaertner/statuse
 |21.03.2019|#Aufwachfrage: Wodurch unterscheiden sich #Fairness und #Gerechtigkeit?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1108631841148416001)|
 |20.03.2019|#Aufwachfrage: Wie ist dein persönliches Verhältnis zwischen Feedback geben und #Feedback erhalten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1108271229516038144)|
 |20.03.2019|#Aufwachfrage: Wie ist dein persönliches Verhältnis zwischen Feedback geben und #Feedback erhalten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1108271229516038144)|
-|19.03.2019|#Aufwachfrage: Soll man eigentlich immer #mutig sein?
-#mut|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1107909825667780608)|
+|19.03.2019|#Aufwachfrage: Soll man eigentlich immer #mutig sein?<br/>#mut|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1107909825667780608)|
 |18.03.2019|#Aufwachfrage: Wobei beschummelt die Belegschaft deine Firma?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1107544676733734913)|
 |18.03.2019|#Aufwachfrage: Wobei beschummelt die Belegschaft deine Firma?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1107544676733734913)|
 |15.03.2019|#Aufwachfrage: Was redet sich dein Chef schön?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1106457546028695559)|
 |14.03.2019|#Aufwachfrage: Was war heute schon gut?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1106119108364562432)|
-|13.03.2019|#Aufwachfrage: Wann ist es hilfreich, politisch unkorrekt zu sein?
-#PC #politischeKorrektheit|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1105732741985959937)|
+|13.03.2019|#Aufwachfrage: Wann ist es hilfreich, politisch unkorrekt zu sein?<br/>#PC #politischeKorrektheit|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1105732741985959937)|
 |12.03.2019|#Aufwachfrage: Wie macht man sich auf seinem Fachgebiet freiwillig wieder zum #Lehrling?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1105370339964526597)|
-|11.03.2019|#Aufwachfrage: Bist du treu?
-(Ist heute fast eine #Mahlzeitfrage geworden)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1105051360742031360)|
+|11.03.2019|#Aufwachfrage: Bist du treu?<br/>(Ist heute fast eine #Mahlzeitfrage geworden)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1105051360742031360)|
 |08.03.2019|#Aufwachfrage: Wenn du zum #Friseur gehst, wie beschreibst du #Projektziel, funktionale und nicht funktionale #Anforderungen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1103920808542392322)|
 |07.03.2019|#Aufwachfrage: Welche #Phrase im Job nervt dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1103558432026779648)|
 |06.03.2019|#Aufwachfrage: Warum betrügst du (mutmaßlich) manchmal?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1103196017237913600)|
 |06.03.2019|#Aufwachfrage: Warum betrügst du (mutmaßlich) manchmal?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1103196017237913600)|
-|05.03.2019|#Aufwachfrage: Welcher Beruf/ welche Branche würde deinen jetzigen Beruf überflüssig machen?
-#disruption|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1102829736953294848)|
-|05.03.2019|#Aufwachfrage: Welcher Beruf/ welche Branche würde deinen jetzigen Beruf überflüssig machen?
-#disruption|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1102829736953294848)|
+|05.03.2019|#Aufwachfrage: Welcher Beruf/ welche Branche würde deinen jetzigen Beruf überflüssig machen?<br/>#disruption|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1102829736953294848)|
+|05.03.2019|#Aufwachfrage: Welcher Beruf/ welche Branche würde deinen jetzigen Beruf überflüssig machen?<br/>#disruption|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1102829736953294848)|
 |04.03.2019|#Aufwachfrage: Worüber kannst du (ohne #Sarkasmus) lachen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1102471245197660161)|
 |04.03.2019|#Aufwachfrage: Worüber kannst du (ohne #Sarkasmus) lachen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1102471245197660161)|
 |01.03.2019|#Aufwachfrage: Wie macht man #Recruitung komplett falsch?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1101391020191858688)|
@@ -1084,10 +882,8 @@ CC @MkKueper @derDoubleD|[Twitter URL](http://twitter.com/udowiegaertner/statuse
 |27.02.2019|#Aufwachfrage: Woran merkst du, dass deine #Empathie grad müde ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1100659354238365696)|
 |26.02.2019|#Aufwachfrage: Wie schaffst du es, #Schwäche einzugestehen, wenn alle um dich herum stark zu sein scheinen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1100296931597668352)|
 |26.02.2019|#Aufwachfrage: Wie schaffst du es, #Schwäche einzugestehen, wenn alle um dich herum stark zu sein scheinen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1100296931597668352)|
-|25.02.2019|#Aufwachfrage: Was sagt es über meine Haltung, wenn ich sage, dass jemand eine *falsche* #Haltung hat?
-(Danke für die Frage an @GerritBeine)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1099934588669968384)|
-|25.02.2019|#Aufwachfrage: Was sagt es über meine Haltung, wenn ich sage, dass jemand eine *falsche* #Haltung hat?
-(Danke für die Frage an @GerritBeine)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1099934588669968384)|
+|25.02.2019|#Aufwachfrage: Was sagt es über meine Haltung, wenn ich sage, dass jemand eine *falsche* #Haltung hat?<br/>(Danke für die Frage an @GerritBeine)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1099934588669968384)|
+|25.02.2019|#Aufwachfrage: Was sagt es über meine Haltung, wenn ich sage, dass jemand eine *falsche* #Haltung hat?<br/>(Danke für die Frage an @GerritBeine)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1099934588669968384)|
 |22.02.2019|#Aufwachfrage: Woran machst du fest, wie #introvertiert du bist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1098847370958290944)|
 |22.02.2019|#Aufwachfrage: Woran machst du fest, wie #introvertiert du bist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1098847370958290944)|
 |20.02.2019|#Aufwachfrage: Was bewirkt ein guter Software-Architekt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1098122602378395648)|
@@ -1096,57 +892,40 @@ CC @MkKueper @derDoubleD|[Twitter URL](http://twitter.com/udowiegaertner/statuse
 |18.02.2019|#Aufwachfrage: Wobei bist du zuletzt über dich hinausgwachsen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1097397858578415617)|
 |15.02.2019|#Aufwachfrage: Über welches schlecht bedienenbare Detail in den Softwares, die du jeden Tag im Job benutzt, stolper… https://t.co/vzweS8un64|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1096311214613938177)|
 |14.02.2019|#Aufwachfrage: Was sollten wir wie umbenennen, um es besser zu machen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1095948356730396672)|
-|13.02.2019|#Aufwachfrage: What #value  needs your attention today?
-(thanks for the inspiration to @YvesHanoulle)… https://t.co/pwlTLBsxE9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1095581333663961088)|
+|13.02.2019|#Aufwachfrage: What #value  needs your attention today?<br/>(thanks for the inspiration to @YvesHanoulle)… https://t.co/pwlTLBsxE9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1095581333663961088)|
 |11.02.2019|#Aufwachfrage: In welcher Hinsicht hast du Moos angesetzt? https://t.co/GmSJqJn4nn|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1094861100514983936)|
 |08.02.2019|#Aufwachfrage: Was geht gar nicht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093773930081464320)|
 |08.02.2019|#Aufwachfrage: Was geht gar nicht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093773930081464320)|
 |07.02.2019|#Aufwachfrage: Welches Statement würdest du in deiner Antrittsrede als Generalsekretär*in der Vereinten Nationen au… https://t.co/3LVMbPicR5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093411580816080896)|
 |06.02.2019|@MkKueper @mytaxi Top #UX: U-Bahn-Pricing Mexico City -&gt; Token einwerfen (nur EIN Preis), fahren, bis man irgendein… https://t.co/9psPFLeUQn|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093229265045413892)|
-|06.02.2019|@MkKueper @IT_Digital_AC @mytaxi Geniale #Aufwachfrage. 
-Meine beste #UX: Abendessen daheim. 
-Meine schlechteste: F… https://t.co/Wv7n7YP4Wk|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093226987211186177)|
-|06.02.2019|@MkKueper @IT_Digital_AC @mytaxi Geniale #Aufwachfrage. 
-Meine beste #UX: Abendessen daheim. 
-Meine schlechteste: F… https://t.co/Wv7n7YP4Wk|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093226987211186177)|
+|06.02.2019|@MkKueper @IT_Digital_AC @mytaxi Geniale #Aufwachfrage. <br/>Meine beste #UX: Abendessen daheim. <br/>Meine schlechteste: F… https://t.co/Wv7n7YP4Wk|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093226987211186177)|
+|06.02.2019|@MkKueper @IT_Digital_AC @mytaxi Geniale #Aufwachfrage. <br/>Meine beste #UX: Abendessen daheim. <br/>Meine schlechteste: F… https://t.co/Wv7n7YP4Wk|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093226987211186177)|
 |06.02.2019|#Aufwachfrage: Bist du kreativer, wenn du nicht mit vertrauten, sondern mit fremden Menschen Ideen spinnst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1093049183420981249)|
 |05.02.2019|#Aufwachfrage: Ist #Leidensdruck eigentlich etwas Gutes oder etwa Schlechtes?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1092686786235650048)|
-|04.02.2019|#Aufwachfrage: Woher weißt du, was wirklich #wichtig ist?
-(inspiriert durch einen Artikel in der @SZ) #priorisierung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1092324388849049600)|
-|04.02.2019|#Aufwachfrage: Woher weißt du, was wirklich #wichtig ist?
-(inspiriert durch einen Artikel in der @SZ) #priorisierung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1092324388849049600)|
+|04.02.2019|#Aufwachfrage: Woher weißt du, was wirklich #wichtig ist?<br/>(inspiriert durch einen Artikel in der @SZ) #priorisierung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1092324388849049600)|
+|04.02.2019|#Aufwachfrage: Woher weißt du, was wirklich #wichtig ist?<br/>(inspiriert durch einen Artikel in der @SZ) #priorisierung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1092324388849049600)|
 |01.02.2019|#Aufwachfrage: Woran erkennst du, dass du gerade #geduldig bist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1091237215286583297)|
-|31.01.2019|#Aufwachfrage: Wie ist die Verteilung bei dir zwischen #Lernen und Wissen teilen?
-
-#wol #WorkingOutLoud #SharingIsCaring #NeverStopLearning|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1090874882936721408)|
+|31.01.2019|#Aufwachfrage: Wie ist die Verteilung bei dir zwischen #Lernen und Wissen teilen?<br/><br/>#wol #WorkingOutLoud #SharingIsCaring #NeverStopLearning|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1090874882936721408)|
 |30.01.2019|#Aufwachfrage: Welchen Aspekt des #StatusQuo deines Unternehmens wagst du NICHT, in Frage zu stellen, obwohl es nötig wäre?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1090512468600913920)|
 |29.01.2019|#Aufwachfrage: Hast du eine persönliche #Roadmap für dein Leben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1090150072929710080)|
 |29.01.2019|#Aufwachfrage: Hast du eine persönliche #Roadmap für dein Leben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1090150072929710080)|
 |28.01.2019|#Aufwachfrage: Was bringt dein Eis zum Schmelzen? https://t.co/bVA68FCdg3|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1089787686414561281)|
-|25.01.2019|#Aufwachfrage: Erweiterst du dein #Wissen vorzugsweise in die Breite oder in die Tiefe?
-#lernen #TShape https://t.co/imlOU0Sic0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1088703343613149184)|
+|25.01.2019|#Aufwachfrage: Erweiterst du dein #Wissen vorzugsweise in die Breite oder in die Tiefe?<br/>#lernen #TShape https://t.co/imlOU0Sic0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1088703343613149184)|
 |24.01.2019|#Aufwachfrage: Wagst du es, anderen zu sagen, was du brauchst, damit es dir gutgeht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1088338135250100224)|
 |24.01.2019|#Aufwachfrage: Wagst du es, anderen zu sagen, was du brauchst, damit es dir gutgeht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1088338135250100224)|
 |23.01.2019|#Aufwachfrage: Welche deiner Superkräfte würdest du gerne los haben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1087975763800932354)|
-|22.01.2019|#Aufwachfrage: An welcher Kleinigkeit erkennst du einen #ServantLeader?
-#ServantLeadership #newWork|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1087613384546312192)|
+|22.01.2019|#Aufwachfrage: An welcher Kleinigkeit erkennst du einen #ServantLeader?<br/>#ServantLeadership #newWork|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1087613384546312192)|
 |21.01.2019|#Aufwachfrage: Was würdest du tun, wenn dein Arbeitgeber von einem Konzern gekauft würde, der primär mit Rüstung/Ve… https://t.co/HVz7hkg5JW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1087250976967405575)|
 |18.01.2019|#Aufwachfrage: Spinnst du?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1086162191613652992)|
 |18.01.2019|#Aufwachfrage: Spinnst du?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1086162191613652992)|
-|17.01.2019|#Aufwachfrage: An welchen Tasks arbeitest du trotzdem weiter, obwohl GEMO schon überschritten ist?
----
-GEMO = ""Good… https://t.co/z57Sh9zfoB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1085798310277898240)|
+|17.01.2019|#Aufwachfrage: An welchen Tasks arbeitest du trotzdem weiter, obwohl GEMO schon überschritten ist?<br/>---<br/>GEMO = "Good… https://t.co/z57Sh9zfoB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1085798310277898240)|
 |16.01.2019|#Aufwachfrage: Für wie pünktlich halten dich deine Mitmenschen wohl?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1085434658697953280)|
-|15.01.2019|#Aufwachfrage: Was macht für dich ""gute Arbeit"" aus?
-(Danke für den Impuls an @achimbrasil) https://t.co/YdAwtCCs5n|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1085072435848900608)|
-|14.01.2019|#Aufwachfrage: Was wirkt bei dir als #Empathieverstärker?
-#Empathie|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1084714260352192514)|
-|11.01.2019|#Aufwachfrage: Wie oft in einer typischen Woche stellst du die Frage ""#Wozu?""?
-#StartWithWhy|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1083627116036538368)|
+|15.01.2019|#Aufwachfrage: Was macht für dich "gute Arbeit" aus?<br/>(Danke für den Impuls an @achimbrasil) https://t.co/YdAwtCCs5n|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1085072435848900608)|
+|14.01.2019|#Aufwachfrage: Was wirkt bei dir als #Empathieverstärker?<br/>#Empathie|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1084714260352192514)|
+|11.01.2019|#Aufwachfrage: Wie oft in einer typischen Woche stellst du die Frage "#Wozu?"?<br/>#StartWithWhy|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1083627116036538368)|
 |10.01.2019|#Aufwachfrage: Wofür vergisst du immer, Puffer-Zeit einzuplanen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1083264709950877697)|
 |09.01.2019|#Aufwachfrage: Warst du selber schon Hohenpriester/-in eines #CargoCult?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1082902376724484096)|
-|08.01.2019|#Aufwachfrage: Bist du beim Durchblättern eines neuen Fachbuchs eher bei
-a) ""Hey, jetzt kann ich das auch #lernen""… https://t.co/14pAJ3ae62|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1082539936107110402)|
+|08.01.2019|#Aufwachfrage: Bist du beim Durchblättern eines neuen Fachbuchs eher bei<br/>a) "Hey, jetzt kann ich das auch #lernen"… https://t.co/14pAJ3ae62|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1082539936107110402)|
 |07.01.2019|#Aufwachfrage: Welche Sätze würdest du an deinem ersten Tag in einem neuen Job hören wollen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1082177551521509376)|
 |07.01.2019|#Aufwachfrage: Welche Sätze würdest du an deinem ersten Tag in einem neuen Job hören wollen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1082177551521509376)|
 |04.01.2019|#Aufwachfrage: Welche Äste deines persönlichen Netzwerks müssten eigentlich mal zurückgeschnitten werden? #networking #wol|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1081090355913723904)|
@@ -1154,12 +933,8 @@ a) ""Hey, jetzt kann ich das auch #lernen""… https://t.co/14pAJ3ae62|[Twitter 
 |02.01.2019|#Aufwachfrage: In welchen Situationen bist du stolz, ein/e Deutsche/r zu sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1080365588344651776)|
 |02.01.2019|#Aufwachfrage: In welchen Situationen bist du stolz, ein/e Deutsche/r zu sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1080365588344651776)|
 |01.01.2019|#Aufwachfrage: Welchen #Fehler willst du 2019 unbedingt machen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1080003196423151617)|
-|31.12.2018|Mein Jahr 2018 in 3 Songs:
-1) ""Our House"" von #Madness
-2) ""Changes"" von #DavidBowie
-3) ""Du schreibst Geschichte"" vo… https://t.co/CLtfdH67m1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1079653467214491649)|
-|31.12.2018|#Aufwachfrage: Mit welchen drei #Songs könntest du dein Jahr 2018 für uns hörbar machen?
-(Links zu den Songs oder g… https://t.co/PsVqi7ceHC|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1079640814345773056)|
+|31.12.2018|Mein Jahr 2018 in 3 Songs:<br/>1) "Our House" von #Madness<br/>2) "Changes" von #DavidBowie<br/>3) "Du schreibst Geschichte" vo… https://t.co/CLtfdH67m1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1079653467214491649)|
+|31.12.2018|#Aufwachfrage: Mit welchen drei #Songs könntest du dein Jahr 2018 für uns hörbar machen?<br/>(Links zu den Songs oder g… https://t.co/PsVqi7ceHC|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1079640814345773056)|
 |30.12.2018|Es treibt mich in den Wahnsinn, wenn jemand im Büro-WC den Abfalleimer für die Papierhandtücher nicht mittig unter… https://t.co/lxma2HCmwI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1079438581683441665)|
 |28.12.2018|#Aufwachfrage: Welches #Sprichwort hältst du für völligen Bullshit?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1078556615568179200)|
 |27.12.2018|#Aufwachfrage: Tickst du eher in Zahlen, Zahlen, Buchstaben, Bildern oder in ganz was anderem?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1078191268298145792)|
@@ -1171,8 +946,7 @@ a) ""Hey, jetzt kann ich das auch #lernen""… https://t.co/14pAJ3ae62|[Twitter 
 |21.12.2018|#Aufwachfrage: Wie wahrscheinlich ist es, dass #ScrumMaster die AfD wählen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1076017001439641600)|
 |20.12.2018|#Aufwachfrage: Welchen Gegenstand würden deine Kolleginnen/Kollegen am ehesten mit dir verbinden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1075654565175930881)|
 |19.12.2018|#Aufwachfrage: Was würdest du an deinem letzten Tag in einem Unternehmen unbedingt tun wollen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1075292202635591681)|
-|18.12.2018|#Aufwachfrage: Wie bleibt man als Moderator nach außen neutral, obwohl man eine starke eigene Meinung in der Sache hat?
-#Coaching|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1074929825075339265)|
+|18.12.2018|#Aufwachfrage: Wie bleibt man als Moderator nach außen neutral, obwohl man eine starke eigene Meinung in der Sache hat?<br/>#Coaching|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1074929825075339265)|
 |17.12.2018|#Aufwachfrage: Was in deinem Berufsleben hat sich über die Zeit als #Märchen herausgestellt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1074567374454616064)|
 |15.12.2018|@Zwingy_DE Komisch, dass die #Aufwachfrage Fränkisch spricht, oder? ;-)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1074052323817734144)|
 |14.12.2018|#Aufwachfrage: Was macht dir "positive" Gänsehaut?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1073480243795714048)|
@@ -1185,10 +959,8 @@ a) ""Hey, jetzt kann ich das auch #lernen""… https://t.co/14pAJ3ae62|[Twitter 
 |10.12.2018|#Aufwachfrage: Welcher Satz in der Ansprache deines Chefs bei der #Weihachtsfeier der Firma würde dich entzücken?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1072030678353633281)|
 |07.12.2018|#Aufwachfrage: Wie würdest du einem ca. 10-jährigem Kind die Grundidee des #Islam erklären?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1070943499720241153)|
 |06.12.2018|#Aufwachfrage: Wer ist offener für Neues - dein Chef/Chefin oder du?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1070581130938720256)|
-|05.12.2018|#Aufwachfrage: Welcher Satz muss in einem Team fallen um dir zu zeigen, dass du gern in diesem Team arbeitest?""
-(Da… https://t.co/Bz4pIt689I|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1070218716112138240)|
-|05.12.2018|#Aufwachfrage: Welcher Satz muss in einem Team fallen um dir zu zeigen, dass du gern in diesem Team arbeitest?""
-(Da… https://t.co/Bz4pIt689I|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1070218716112138240)|
+|05.12.2018|#Aufwachfrage: Welcher Satz muss in einem Team fallen um dir zu zeigen, dass du gern in diesem Team arbeitest?"<br/>(Da… https://t.co/Bz4pIt689I|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1070218716112138240)|
+|05.12.2018|#Aufwachfrage: Welcher Satz muss in einem Team fallen um dir zu zeigen, dass du gern in diesem Team arbeitest?"<br/>(Da… https://t.co/Bz4pIt689I|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1070218716112138240)|
 |04.12.2018|#Aufwachfrage: Für welche Situation hast du den Kampf gegen #Bürokratie im Büro bereits entnervt aufgegeben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1069856359984914432)|
 |03.12.2018|#Aufwachfrage: Welche sentimentale Erinnerung bewahrst du immer noch auf, obwohl sie schon reif für die Entsorgung ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1069493988875558912)|
 |03.12.2018|#Aufwachfrage: Welche sentimentale Erinnerung bewahrst du immer noch auf, obwohl sie schon reif für die Entsorgung ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1069493988875558912)|
@@ -1201,32 +973,21 @@ a) ""Hey, jetzt kann ich das auch #lernen""… https://t.co/14pAJ3ae62|[Twitter 
 |23.11.2018|#Aufwachfrage: Warum sollte eine Firma gerade dich in ihren Reihen haben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1065870124824051712)|
 |22.11.2018|@schulze_ute @MkKueper Sehr spannende Idee. Ich hatte vor einiger Zeit mal überlegt, was Sarah Huckabee Sanders ant… https://t.co/VpnsOuhMdh|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1065560748280213504)|
 |22.11.2018|#Aufwachfrage: Was würdest du tun, wenn Donald #Trump dein Chef würde, du aber nicht bereit wärst, deinen Job aufzu… https://t.co/2CsQQV3efq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1065507753941262336)|
-|21.11.2018|#Aufwachfrage: Worin bist du echt schlecht im #Aushalten?
-(inspiriert durch die Panel Diskussion der #ALNU18 und… https://t.co/aHCzyDU6LB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1065145324174479360)|
-|21.11.2018|#Aufwachfrage: Worin bist du echt schlecht im #Aushalten?
-(inspiriert durch die Panel Diskussion der #ALNU18 und… https://t.co/aHCzyDU6LB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1065145324174479360)|
+|21.11.2018|#Aufwachfrage: Worin bist du echt schlecht im #Aushalten?<br/>(inspiriert durch die Panel Diskussion der #ALNU18 und… https://t.co/aHCzyDU6LB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1065145324174479360)|
+|21.11.2018|#Aufwachfrage: Worin bist du echt schlecht im #Aushalten?<br/>(inspiriert durch die Panel Diskussion der #ALNU18 und… https://t.co/aHCzyDU6LB|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1065145324174479360)|
 |20.11.2018|Nachtrag zur #Aufwachfrage von heute: Ich hatte die Chance, genau diese Frage heute ca. 200 Leuten bei der Konferen… https://t.co/toa7pUOFBV|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064967906394550274)|
 |20.11.2018|@robinmager_ Passend fand ich für mich auch die Antwort von Judith @janosch007, wonach sie #Ohnmacht schlecht aushä… https://t.co/NvFkQK4Ozn|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064957952468140033)|
-|20.11.2018|#Aufwachfrage: Wenn du nur EIN eigenes #Learning zu #Agilität teilen könntest, was wäre es?
-#ALNU18 #agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064782901756219394)|
+|20.11.2018|#Aufwachfrage: Wenn du nur EIN eigenes #Learning zu #Agilität teilen könntest, was wäre es?<br/>#ALNU18 #agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064782901756219394)|
 |19.11.2018|#Aufwachfrage: Bei wie vielen von zehn Situationen steckst du einen USB-Stecker beim ersten Versuch richtig rum rei… https://t.co/pJdcXOu0NI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064420513865453568)|
-|18.11.2018|Danke für die super Session-Doku zum Thema #Podcast.
-Etliche davon höre ich selber, einige werde ich definitiv ausp… https://t.co/jzRZZQhyhl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064208998482747393)|
-|18.11.2018|Danke für die super Session-Doku zum Thema #Podcast.
-Etliche davon höre ich selber, einige werde ich definitiv ausp… https://t.co/jzRZZQhyhl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064208998482747393)|
-|17.11.2018|Drei der für mich spirituellsten Orte:
-1) #Yosemite Valley im Herbst 
-2) Die kleine, wunderbar minimalistische… https://t.co/lKs9q9T0Yh|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1063848966796832770)|
-|16.11.2018|#Aufwachfrage: HAST du #Ideen oder MACHST du Ideen?
-(inspiriert durch die Episode ""Where does #Creativity come from… https://t.co/tLg92473TM|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1063333350096732161)|
+|18.11.2018|Danke für die super Session-Doku zum Thema #Podcast.<br/>Etliche davon höre ich selber, einige werde ich definitiv ausp… https://t.co/jzRZZQhyhl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064208998482747393)|
+|18.11.2018|Danke für die super Session-Doku zum Thema #Podcast.<br/>Etliche davon höre ich selber, einige werde ich definitiv ausp… https://t.co/jzRZZQhyhl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1064208998482747393)|
+|17.11.2018|Drei der für mich spirituellsten Orte:<br/>1) #Yosemite Valley im Herbst <br/>2) Die kleine, wunderbar minimalistische… https://t.co/lKs9q9T0Yh|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1063848966796832770)|
+|16.11.2018|#Aufwachfrage: HAST du #Ideen oder MACHST du Ideen?<br/>(inspiriert durch die Episode "Where does #Creativity come from… https://t.co/tLg92473TM|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1063333350096732161)|
 |15.11.2018|#Aufwachfrage: Was sind die drei spirituellsten Orte für dich (was immer auch #Spiritualität für dich bedeuten mag)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1062970966907740161)|
 |14.11.2018|#Aufwachfrage: Glaubst du, du hast die besten Ideen deines gesamten Lebens bereits gehabt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1062608587133014016)|
 |13.11.2018|#Aufwachfrage: Wie viele Menschen waren ganz konkret involviert, als du deine bisher besten Ideen ausgeheckt hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1062246198483009536)|
-|12.11.2018|#Aufwachfrage: Welche #Podcasts verschaffen dir neue #Nervennahrung?
-(Danke für die Frage an @GregOnNet)
-#podcast #SharingIsCaring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1061883877675950080)|
-|09.11.2018|#Aufwachfrage: Was hast du in deinem jetzigen Job verlernt?
-(Danke an @agileSuperMel für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1060796651512709120)|
+|12.11.2018|#Aufwachfrage: Welche #Podcasts verschaffen dir neue #Nervennahrung?<br/>(Danke für die Frage an @GregOnNet)<br/>#podcast #SharingIsCaring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1061883877675950080)|
+|09.11.2018|#Aufwachfrage: Was hast du in deinem jetzigen Job verlernt?<br/>(Danke an @agileSuperMel für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1060796651512709120)|
 |08.11.2018|#Aufwachfrage: Would you favor #daring, #sharing or #caring, if you could do only one of the three?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1060434246232428544)|
 |07.11.2018|#Aufwachfrage: Welches #Silo in deiner Firma ist am undurchdringlichsten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1060071904797736961)|
 |07.11.2018|#Aufwachfrage: Welches #Silo in deiner Firma ist am undurchdringlichsten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1060071904797736961)|
@@ -1261,24 +1022,16 @@ Etliche davon höre ich selber, einige werde ich definitiv ausp… https://t.co/
 |04.10.2018|#Aufwachfrage: Welcher Aspekt von #Agilität ist maßlos unterbewertet?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1047735572616368128)|
 |03.10.2018|#Aufwachfrage: Welcher Sinnspruch sollte auf auf der 1-Agilo-Banknote stehen, wenn es die agile Währung gäbe?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1047373203130204161)|
 |02.10.2018|#Aufwachfrage: Welcher Aspekt von #Agilität ist maßlos überbewertet?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1047010818339090433)|
-|01.10.2018|#Aufwachfrage: Was ist für dich der Unterschied zwischen #Höflichkeit und #Respekt?
-
-(inspiriert durch… https://t.co/HZZ7JULeVJ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1046648478443732992)|
-|01.10.2018|#Aufwachfrage: Was ist für dich der Unterschied zwischen #Höflichkeit und #Respekt?
-
-(inspiriert durch… https://t.co/HZZ7JULeVJ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1046648478443732992)|
+|01.10.2018|#Aufwachfrage: Was ist für dich der Unterschied zwischen #Höflichkeit und #Respekt?<br/><br/>(inspiriert durch… https://t.co/HZZ7JULeVJ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1046648478443732992)|
+|01.10.2018|#Aufwachfrage: Was ist für dich der Unterschied zwischen #Höflichkeit und #Respekt?<br/><br/>(inspiriert durch… https://t.co/HZZ7JULeVJ|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1046648478443732992)|
 |28.09.2018|#Aufwachfrage: Welche #Verbote ignorierst du? https://t.co/NnaJKzi9xc|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1045561266247479296)|
 |27.09.2018|#Aufwachfrage: Wo ist dein eigener #Engpass im Job?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1045198888062398464)|
 |26.09.2018|#Aufwachfrage: Wann hast du zuletzt wirklich "brutal" offenes und vollständiges Feedback gegeben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1044836469754540032)|
-|25.09.2018|#Aufwachfrage: Wie siehst du gerade jetzt aus?
-(Das ist ein Versuch, die Menschen hinter den Aufwachantworten mitei… https://t.co/HWNsNy57g5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1044474079183597568)|
-|25.09.2018|#Aufwachfrage: Wie siehst du gerade jetzt aus?
-(Das ist ein Versuch, die Menschen hinter den Aufwachantworten mitei… https://t.co/HWNsNy57g5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1044474079183597568)|
+|25.09.2018|#Aufwachfrage: Wie siehst du gerade jetzt aus?<br/>(Das ist ein Versuch, die Menschen hinter den Aufwachantworten mitei… https://t.co/HWNsNy57g5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1044474079183597568)|
+|25.09.2018|#Aufwachfrage: Wie siehst du gerade jetzt aus?<br/>(Das ist ein Versuch, die Menschen hinter den Aufwachantworten mitei… https://t.co/HWNsNy57g5|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1044474079183597568)|
 |24.09.2018|#Aufwachfrage: Wann ruhst du in dir selbst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1044111691955535877)|
 |21.09.2018|#Aufwachfrage: Welche #Inspiration oder eigene neue Idee hast du dir zuletzt notiert, damit du sie nicht vergisst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1043039168211742722)|
-|20.09.2018|#Aufwachfrage: Was war dein #Lieblingsmoment gestern?
-
-(inspiriert durch viele Tweets/Postings zu Dankbarkeit/Achts… https://t.co/FuPjvMwBta|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1042662214543597568)|
+|20.09.2018|#Aufwachfrage: Was war dein #Lieblingsmoment gestern?<br/><br/>(inspiriert durch viele Tweets/Postings zu Dankbarkeit/Achts… https://t.co/FuPjvMwBta|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1042662214543597568)|
 |19.09.2018|#Aufwachfrage: Wie funktioniert "sich selber neu erfinden" bei dir?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1042299792028827648)|
 |19.09.2018|#Aufwachfrage: Wie funktioniert "sich selber neu erfinden" bei dir?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1042299792028827648)|
 |18.09.2018|#Aufwachfrage: Welchen #Triggerpunkt muss man drücken, damit du an die Decke gehst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1041937433510768640)|
@@ -1309,58 +1062,39 @@ Etliche davon höre ich selber, einige werde ich definitiv ausp… https://t.co/
 |22.08.2018|#Aufwachfrage: Wie sähe (oder sieht) #FakeNews bei dir im Job-Umfeld aus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1032152920551313408)|
 |21.08.2018|#Aufwachfrage: Soll man sich, über sein Projekt hinaus, in der Firma einmischen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1031790538209615873)|
 |20.08.2018|#Aufwachfrage: Warum sollte gerade DEIN Job nicht von der Digitalisierung überflüssig gemacht werden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1031428153326092289)|
-|17.08.2018|#Aufwachfrage: Welche #Bücher liegen momentan 
-a) auf deinem Schreibtisch 
-b) auf deinem Nachtkästchen
-c) ganz oben im eReader?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1030341025267679232)|
-|17.08.2018|#Aufwachfrage: Welche #Bücher liegen momentan 
-a) auf deinem Schreibtisch 
-b) auf deinem Nachtkästchen
-c) ganz oben im eReader?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1030341025267679232)|
+|17.08.2018|#Aufwachfrage: Welche #Bücher liegen momentan <br/>a) auf deinem Schreibtisch <br/>b) auf deinem Nachtkästchen<br/>c) ganz oben im eReader?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1030341025267679232)|
+|17.08.2018|#Aufwachfrage: Welche #Bücher liegen momentan <br/>a) auf deinem Schreibtisch <br/>b) auf deinem Nachtkästchen<br/>c) ganz oben im eReader?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1030341025267679232)|
 |16.08.2018|@reinaldkirchner Danke für die ungefragte Bewertung meiner "Performance". Ich mache die #Aufwachfrage nicht, um gut… https://t.co/GXRMWwqbr0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1030078505311240192)|
 |16.08.2018|#Aufwachfrage: Sollte man eigentlich in Projekten mitarbeiten, wenn man moralisch nicht komplett einverstanden ist?… https://t.co/1XFmCsPUv9|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1029978629776842752)|
 |15.08.2018|#Aufwachfrage: Muss Arbeit eigentlich auch weh tun?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1029616262903721984)|
 |15.08.2018|#Aufwachfrage: Muss Arbeit eigentlich auch weh tun?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1029616262903721984)|
 |14.08.2018|#Aufwachfrage: Was wäre wohl der Inhalt der Geschichte, von der du am Ende deines Berufslebens mit leuchtenden Auge… https://t.co/aQ3GHxEwRR|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1029253810332594177)|
-|13.08.2018|#Aufwachfrage: Wie viel #Agilität ist zu viel Agilität?
-#agile #dasRechteMaß https://t.co/Tftd1jqZGa|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1028891492012773378)|
-|10.08.2018|#Aufwachfrage: Hast du #Angst vor den relevanten Dingen, vor denen man tatsächlich Angst haben sollte?
-(inspiriert… https://t.co/DBy0Q9ANb0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1027804254935891968)|
-|09.08.2018|#Aufwachfrage: Erzählst du eigentlich schon die Geschichte über dich selber, die DU erzählen willst?
-(Danke an… https://t.co/aMKsQROUuy|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1027441925564055552)|
+|13.08.2018|#Aufwachfrage: Wie viel #Agilität ist zu viel Agilität?<br/>#agile #dasRechteMaß https://t.co/Tftd1jqZGa|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1028891492012773378)|
+|10.08.2018|#Aufwachfrage: Hast du #Angst vor den relevanten Dingen, vor denen man tatsächlich Angst haben sollte?<br/>(inspiriert… https://t.co/DBy0Q9ANb0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1027804254935891968)|
+|09.08.2018|#Aufwachfrage: Erzählst du eigentlich schon die Geschichte über dich selber, die DU erzählen willst?<br/>(Danke an… https://t.co/aMKsQROUuy|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1027441925564055552)|
 |08.08.2018|#Aufwachfrage: Was würdest du arbeiten, wenn du nicht deinen aktuellen Beruf ergriffen hättest?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1027079490034458624)|
 |07.08.2018|@agilefairylight I guess I don't know whether I like the stories I tell about myself until I hear me telling them.… https://t.co/u1yFIxDwv0|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1026719552233791488)|
 |07.08.2018|#Aufwachfrage: In welchen Situationen fühlst du dich #überflüssig?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1026717125191364608)|
 |07.08.2018|#Aufwachfrage: In welchen Situationen fühlst du dich #überflüssig?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1026717125191364608)|
-|06.08.2018|#Aufwachfrage: Wann hast du zuletzt etwa Selbstloses für einen Fremden getan?
-(Danke für die Frage an @Zwingy_DE)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1026354699593822208)|
-|03.08.2018|#Aufwachfrage: Ist es unprofessionell, wenn man #emotional wird?
-(Danke an @SandraParsick für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1025267551046172672)|
-|03.08.2018|#Aufwachfrage: Ist es unprofessionell, wenn man #emotional wird?
-(Danke an @SandraParsick für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1025267551046172672)|
+|06.08.2018|#Aufwachfrage: Wann hast du zuletzt etwa Selbstloses für einen Fremden getan?<br/>(Danke für die Frage an @Zwingy_DE)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1026354699593822208)|
+|03.08.2018|#Aufwachfrage: Ist es unprofessionell, wenn man #emotional wird?<br/>(Danke an @SandraParsick für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1025267551046172672)|
+|03.08.2018|#Aufwachfrage: Ist es unprofessionell, wenn man #emotional wird?<br/>(Danke an @SandraParsick für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1025267551046172672)|
 |02.08.2018|@SandraParsick Ich stelle die Frage morgen mal als #Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1025007036969496577)|
-|02.08.2018|#Aufwachfrage: In welchen Situationen könnte #heucheln ok sein?
-#Heuchelei|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024905152606756865)|
-|02.08.2018|#Aufwachfrage: In welchen Situationen könnte #heucheln ok sein?
-#Heuchelei|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024905152606756865)|
-|01.08.2018|Spaß bei der Arbeit" war das Thema der #Aufwachfrage vor einigen Tagen. Das hier passiert, wenn Leute aus Gummitie… https://t.co/GlrM0KHHiT|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024628654037446656)|
+|02.08.2018|#Aufwachfrage: In welchen Situationen könnte #heucheln ok sein?<br/>#Heuchelei|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024905152606756865)|
+|02.08.2018|#Aufwachfrage: In welchen Situationen könnte #heucheln ok sein?<br/>#Heuchelei|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024905152606756865)|
+|01.08.2018|"Spaß bei der Arbeit" war das Thema der #Aufwachfrage vor einigen Tagen. Das hier passiert, wenn Leute aus Gummitie… https://t.co/GlrM0KHHiT|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024628654037446656)|
 |01.08.2018|#Aufwachfrage: Welche Gefühle löst die momentane #Hitzewelle in dir aus (abgesehen von Offensichtlichkeiten wie dem Verlangen nach Eis)?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024542825520803841)|
 |31.07.2018|#Aufwachfrage: Wann hast du zuletzt ernsthaft über den Sinn des Lebens nachgedacht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1024180364405821440)|
 |30.07.2018|#Aufwachfrage: Was ist deine Antwort auf den Satz "Wir sind nicht im Büro, um Spaß zu haben, sondern um zu arbeiten… https://t.co/CuWsPaafoz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1023855364381519877)|
-|27.07.2018|#Aufwachfrage: How to describe #ServantLeadership in a single Tweet?
-#SingleTweetDefinition
-#BarelyAwakeQuestion|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1022730827178942464)|
-|26.07.2018|#Aufwachfrage: Wie politisch unkorrekt darf/soll man im Job eigentlich sein?
-#pc #politischKorrekt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1022368442962399232)|
+|27.07.2018|#Aufwachfrage: How to describe #ServantLeadership in a single Tweet?<br/>#SingleTweetDefinition<br/>#BarelyAwakeQuestion|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1022730827178942464)|
+|26.07.2018|#Aufwachfrage: Wie politisch unkorrekt darf/soll man im Job eigentlich sein?<br/>#pc #politischKorrekt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1022368442962399232)|
 |25.07.2018|#Aufwachfrage: Wie viele von 10 deiner #Meetings sind eher von "Ja, und..." geprägt und wie viele von "Ja, aber..."… https://t.co/yWWvcQU9qD|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1022015321488744453)|
 |25.07.2018|#Aufwachfrage: Wie viele von 10 deiner #Meetings sind eher von "Ja, und..." geprägt und wie viele von "Ja, aber..."… https://t.co/yWWvcQU9qD|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1022015321488744453)|
 |24.07.2018|#Aufwachfrage: Welche deiner Verhaltensweisen müsstest du eigentlich mal generalsanieren, anstatt immer nur eine ne… https://t.co/Ha1Br63j3t|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1021647043809484800)|
-|20.07.2018|#Aufwachfrage: Wie hältst du https://t.co/q6XPVXUPuY #Toleranz gegenüber Menschen, die du für eine Art Agilitäts-Verweigerer hältst?
-#Agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1020194161016877057)|
+|20.07.2018|#Aufwachfrage: Wie hältst du https://t.co/q6XPVXUPuY #Toleranz gegenüber Menschen, die du für eine Art Agilitäts-Verweigerer hältst?<br/>#Agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1020194161016877057)|
 |19.07.2018|#Aufwachfrage: Warum strengst du dich eigentlich an?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1019831787374153728)|
 |17.07.2018|#Aufwachfrage: Welche Session würdest du gerne mal an einem #OpenSpace erleben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1019106961558769665)|
-|16.07.2018|#Aufwachfrage: Wenn deine Arbeit dir wie Magie von der Hand geht, dann ist es wie...?
-(inspiriert vom Konzept #CleanLanguage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1018744605485957120)|
+|16.07.2018|#Aufwachfrage: Wenn deine Arbeit dir wie Magie von der Hand geht, dann ist es wie...?<br/>(inspiriert vom Konzept #CleanLanguage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1018744605485957120)|
 |13.07.2018|@Grinseteddy Meine Kaffeekanne war heute früh in der Tat der Impuls für die heutige #Aufwachfrage. Die Kanne kann k… https://t.co/I9f9SyccAG|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1017727913175797761)|
 |13.07.2018|#Aufwachfrage: Welchen Alltagsgegenstand würdest du am liebsten sofort verbessern, weil er nicht gut genug funktion… https://t.co/5t3nA1UuBU|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1017676013852155904)|
 |13.07.2018|#Aufwachfrage: Welchen Alltagsgegenstand würdest du am liebsten sofort verbessern, weil er nicht gut genug funktion… https://t.co/5t3nA1UuBU|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1017676013852155904)|
@@ -1376,9 +1110,7 @@ c) ganz oben im eReader?|[Twitter URL](http://twitter.com/udowiegaertner/statuse
 |03.07.2018|#Aufwachfrage: Was ist dein Rezept gegen Hass, den du selber verspürst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1014033591699943424)|
 |02.07.2018|#Aufwachfrage: Woraus besteht dein #Ehrenkodex?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1013671157210460161)|
 |30.06.2018|@agross Eher eine Bleib-benebelt-Frage anstatt #Aufwachfrage. ;-)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1012971487274336256)|
-|29.06.2018|#Aufwachfrage: Was ist deine Definition von #Männlichkeit?
----
-(inspiriert durch die @bayern2 Podcast-Folge ""Der ne… https://t.co/arYEnRJqNu|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1012583982154899456)|
+|29.06.2018|#Aufwachfrage: Was ist deine Definition von #Männlichkeit?<br/>---<br/>(inspiriert durch die @bayern2 Podcast-Folge "Der ne… https://t.co/arYEnRJqNu|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1012583982154899456)|
 |28.06.2018|#Aufwachfrage: Was tust du gegen den #Blues?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1012221628124672000)|
 |27.06.2018|#Aufwachfrage: Woran erkennst du, was #Unrecht ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1011859238262575104)|
 |26.06.2018|#Aufwachfrage: Was muss ich tun, damit du mich magst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1011496823519891456)|
@@ -1390,29 +1122,21 @@ c) ganz oben im eReader?|[Twitter URL](http://twitter.com/udowiegaertner/statuse
 |19.06.2018|#Aufwachfrage: Was ist eigentlich #unmoralisch aber gesellschaftlich voll akzeptiert?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1008960068803596288)|
 |18.06.2018|#Aufwachfrage: Welche Kiste im Abstellraum in deinem Kopf mit unnützem Wissen solltest du endlich mal wegwerfen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1008597723858259968)|
 |15.06.2018|#Aufwachfrage: Müssen wir #Trump eigentlich dankbar sein, weil die USA und Nordkorea jetzt wieder miteinander reden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1007510553022160896)|
-|14.06.2018|#Aufwachfrage: Wem gegenüber fällt es dir am schwersten, einen eigenen #Fehler zuzugeben?
-a) deinem Chef
-b) Team-Ko… https://t.co/0lxLxQQze1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1007148170793668608)|
+|14.06.2018|#Aufwachfrage: Wem gegenüber fällt es dir am schwersten, einen eigenen #Fehler zuzugeben?<br/>a) deinem Chef<br/>b) Team-Ko… https://t.co/0lxLxQQze1|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1007148170793668608)|
 |13.06.2018|#Aufwachfrage: Was kann dir nicht anstrengend genug sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1006785779354537985)|
 |12.06.2018|#Aufwachfrage: Wofür bist du dir zu fein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1006423352230252544)|
 |11.06.2018|#Aufwachfrage: Was ist in deinem Leben #heilig?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1006061008765505539)|
-|08.06.2018|#Aufwachfrage: Was hast du dafür getan, dass es dir gut geht?
-(inspiriert durch @loesungsweise)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1004973856292048896)|
+|08.06.2018|#Aufwachfrage: Was hast du dafür getan, dass es dir gut geht?<br/>(inspiriert durch @loesungsweise)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1004973856292048896)|
 |07.06.2018|#Aufwachfrage: Was fällt dir zuallererst zum Wort „immer“ ein? https://t.co/qjQvOkoffF|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1004611439066337281)|
-|06.06.2018|#Aufwachfrage: Wie würdest du dich selber in Form von genau drei Hashtags beschreiben?
-#3HashtagsIntro|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1004249070272204801)|
+|06.06.2018|#Aufwachfrage: Wie würdest du dich selber in Form von genau drei Hashtags beschreiben?<br/>#3HashtagsIntro|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1004249070272204801)|
 |05.06.2018|#Aufwachfrage: Was tust du, obwohl du zutiefst davon überzeugt bist, dass es entweder falsch oder Quatsch ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1003886721812049920)|
 |04.06.2018|#Aufwachfrage: Auf welche Aspekte unserer Zusammenarbeit im Unternehmen sollten wir eigentlich #Strafzölle erheben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1003524270687969280)|
 |01.06.2018|#Aufwachfrage (vor allem für Menschen in #Bayern): Würdest du als Nicht-Christ an christlichen Feiertagen (die dich… https://t.co/zdlpxST7TW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1002437159259983873)|
 |01.06.2018|#Aufwachfrage (vor allem für Menschen in #Bayern): Würdest du als Nicht-Christ an christlichen Feiertagen (die dich… https://t.co/zdlpxST7TW|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1002437159259983873)|
-|31.05.2018|#Aufwachfrage: Fühlst du dich gerade als #Mentor/ #Mentorin für jemanden?
-#mentoring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1002103515362283520)|
-|30.05.2018|#Aufwachfrage: Wie oft hattest du in deinem Leben schon jemanden, den du als #Mentor bezeichnen könntest?
-(inspirie… https://t.co/wxTS85TVuq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1001712422376402945)|
-|30.05.2018|#Aufwachfrage: Wie oft hattest du in deinem Leben schon jemanden, den du als #Mentor bezeichnen könntest?
-(inspirie… https://t.co/wxTS85TVuq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1001712422376402945)|
-|29.05.2018|#Aufwachfrage: Welcher Kauf von &lt;100€ hat dein Leben positiv verändert?
-(inspiriert durch den Podcast… https://t.co/badpJM9DUL|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1001349924175470592)|
+|31.05.2018|#Aufwachfrage: Fühlst du dich gerade als #Mentor/ #Mentorin für jemanden?<br/>#mentoring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1002103515362283520)|
+|30.05.2018|#Aufwachfrage: Wie oft hattest du in deinem Leben schon jemanden, den du als #Mentor bezeichnen könntest?<br/>(inspirie… https://t.co/wxTS85TVuq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1001712422376402945)|
+|30.05.2018|#Aufwachfrage: Wie oft hattest du in deinem Leben schon jemanden, den du als #Mentor bezeichnen könntest?<br/>(inspirie… https://t.co/wxTS85TVuq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1001712422376402945)|
+|29.05.2018|#Aufwachfrage: Welcher Kauf von &lt;100€ hat dein Leben positiv verändert?<br/>(inspiriert durch den Podcast… https://t.co/badpJM9DUL|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1001349924175470592)|
 |28.05.2018|#Aufwachfrage: Welche #Verschwörungstheorie fehlt uns noch?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/1000987618954432513)|
 |25.05.2018|#Aufwachfrage: Was wäre dein Thema, wenn du 20min vor dem Deutschen Bundestag sprechen dürftest?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/999900520293715968)|
 |24.05.2018|#Aufwachfrage: Was empört dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/999538078070067200)|
@@ -1426,13 +1150,10 @@ b) Team-Ko… https://t.co/0lxLxQQze1|[Twitter URL](http://twitter.com/udowiegae
 |17.05.2018|#Aufwachfrage: Was hast du dieser Tage auf dem Herzen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/997001281175683073)|
 |16.05.2018|#Aufwachfrage: Wen du einen #Friedensnobelpreis für dein Umfeld vergeben könntest, was wären deine Entscheidungskriterien?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/996638927334363136)|
 |16.05.2018|#Aufwachfrage: Wen du einen #Friedensnobelpreis für dein Umfeld vergeben könntest, was wären deine Entscheidungskriterien?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/996638927334363136)|
-|15.05.2018|#Aufwachfrage: Gibt es mehr Probleme ohne Lösung oder mehr Lösungen ohne Problem ?
-(Danke an @fabianschiller für die Frage).|[Twitter URL](http://twitter.com/udowiegaertner/statuses/996276514026147840)|
+|15.05.2018|#Aufwachfrage: Gibt es mehr Probleme ohne Lösung oder mehr Lösungen ohne Problem ?<br/>(Danke an @fabianschiller für die Frage).|[Twitter URL](http://twitter.com/udowiegaertner/statuses/996276514026147840)|
 |14.05.2018|@fabianschiller Good one. Das wird die #Aufwachfrage für Dienstag.|[Twitter URL](http://twitter.com/udowiegaertner/statuses/996042250760216576)|
-|14.05.2018|#Aufwachfrage: Wie arbeitet man mit Personen zusammen, mit denen man keine gemeinsame Sprache findet?
-(by @Herrloesch)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/995914128865812480)|
-|13.05.2018|@Herrloesch Gute Frage. Das wird die #Aufwachfrage für Montag. 
-Meine Hypothese ist, dass man ohne gemeinsame Sprac… https://t.co/76Irm9gdUt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/995598365449707520)|
+|14.05.2018|#Aufwachfrage: Wie arbeitet man mit Personen zusammen, mit denen man keine gemeinsame Sprache findet?<br/>(by @Herrloesch)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/995914128865812480)|
+|13.05.2018|@Herrloesch Gute Frage. Das wird die #Aufwachfrage für Montag. <br/>Meine Hypothese ist, dass man ohne gemeinsame Sprac… https://t.co/76Irm9gdUt|[Twitter URL](http://twitter.com/udowiegaertner/statuses/995598365449707520)|
 |11.05.2018|#Aufwachfrage: Was können deine Freunde, was dein Chef auch können sollte?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/994826978653065216)|
 |10.05.2018|#Aufwachfrage: Welche offizielle #Policy bzw. Regel in deinem Unternehmen ist hochgradig kontraproduktiv?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/994464565688721408)|
 |09.05.2018|#Aufwachfrage: Was ist dein Tipp, um das n #Flow zu kommen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/994102181375684608)|
@@ -1445,10 +1166,8 @@ Meine Hypothese ist, dass man ohne gemeinsame Sprac… https://t.co/76Irm9gdUt|[
 |02.05.2018|#Aufwachfrage: Welcher politischen Partei würde #Jesus wohl nahestehen oder angehören, wenn er heute in Deutschland lebte?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/991565460624887808)|
 |01.05.2018|#Aufwachfrage: Über welchen Erkenntnisschatz bist du total zufällig gestolpert?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/991203081382744065)|
 |30.04.2018|#Aufwachfrage: Was in deiner Welt läuft eigentlich ziemlich gut und man sollte öfters darüber reden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/990840692443316224)|
-|27.04.2018|#Aufwachfrage: Was von deinem Wissen wirst du heute mit jemandem teilen?
-#SharingIsCaring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/989753607867088896)|
-|27.04.2018|#Aufwachfrage: Was von deinem Wissen wirst du heute mit jemandem teilen?
-#SharingIsCaring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/989753607867088896)|
+|27.04.2018|#Aufwachfrage: Was von deinem Wissen wirst du heute mit jemandem teilen?<br/>#SharingIsCaring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/989753607867088896)|
+|27.04.2018|#Aufwachfrage: Was von deinem Wissen wirst du heute mit jemandem teilen?<br/>#SharingIsCaring|[Twitter URL](http://twitter.com/udowiegaertner/statuses/989753607867088896)|
 |26.04.2018|@TorstenWeber @norberteder Keine Angst, ich beziehe meine „Weisheit“ nicht ausschließlich aus verkürzten Twitter Me… https://t.co/n3Ilgwi3YR|[Twitter URL](http://twitter.com/udowiegaertner/statuses/989431491213045761)|
 |26.04.2018|#Aufwachfrage: Wie hast du herausgefunden, wofür du beruflich Leidenschaft hast?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/989391123205558272)|
 |25.04.2018|#Aufwachfrage: Kann man mit Leidenschaft bei einer Sache dabei sein, auch wenn man sich nicht (mehr) damit identifiziert?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/989028799999365122)|
@@ -1469,8 +1188,7 @@ Meine Hypothese ist, dass man ohne gemeinsame Sprac… https://t.co/76Irm9gdUt|[
 |10.04.2018|#Aufwachfrage; Was ist das Beste und was das Schlechteste, das du über deinen aktuellen Job sagen kannst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/983592916408045568)|
 |09.04.2018|#Aufwachfrage: Wie kann man sein eigenes Tempo gehen und trotzdem gemeinsam unterwegs sein - egal, ob im Job oder p… https://t.co/nYMEZl93ur|[Twitter URL](http://twitter.com/udowiegaertner/statuses/983230576852422656)|
 |09.04.2018|#Aufwachfrage: Wie kann man sein eigenes Tempo gehen und trotzdem gemeinsam unterwegs sein - egal, ob im Job oder p… https://t.co/nYMEZl93ur|[Twitter URL](http://twitter.com/udowiegaertner/statuses/983230576852422656)|
-|06.04.2018|#Aufwachfrage: Was macht für dich den Wert deines persönlichen Netzwerks aus?
-#networking #wol #workingOutLoud|[Twitter URL](http://twitter.com/udowiegaertner/statuses/982143416644485120)|
+|06.04.2018|#Aufwachfrage: Was macht für dich den Wert deines persönlichen Netzwerks aus?<br/>#networking #wol #workingOutLoud|[Twitter URL](http://twitter.com/udowiegaertner/statuses/982143416644485120)|
 |05.04.2018|#Aufwachfrage: Ist es für dich zwingend, die Strategie deiner Firma mitzutragen, um motiviert und mit Volldampf arbeiten zu können?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/981781070336217089)|
 |04.04.2018|#Aufwachfrage: Würdest du lügen, um einen Kollegen zu schützen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/981418613692301312)|
 |04.04.2018|#Aufwachfrage: Würdest du lügen, um einen Kollegen zu schützen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/981418613692301312)|
@@ -1480,16 +1198,14 @@ Meine Hypothese ist, dass man ohne gemeinsame Sprac… https://t.co/76Irm9gdUt|[
 |02.04.2018|#Aufwachfrage: Nimmt man sich selber zu wichtig, wenn man im Job Spuren hinterlassen will?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/980693860698546176)|
 |30.03.2018|#Aufwachfrage: Wobei wirst du ausgenutzt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/979606720350744576)|
 |30.03.2018|#Aufwachfrage: Wobei wirst du ausgenutzt?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/979606720350744576)|
-|29.03.2018|#Aufwachfrage: Bist du im Job ein harter Hund bzw Hündin?
-#harterHund|[Twitter URL](http://twitter.com/udowiegaertner/statuses/979244273165127682)|
+|29.03.2018|#Aufwachfrage: Bist du im Job ein harter Hund bzw Hündin?<br/>#harterHund|[Twitter URL](http://twitter.com/udowiegaertner/statuses/979244273165127682)|
 |28.03.2018|#Aufwachfrage: In welchen Situationen kann es im Job wertvoll sein, die eigene emotionale #Verletzlichkeit zu zeigen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/978881952152539140)|
 |23.03.2018|#Aufwachfrage: Was war die letzten Tage genau nach deinem Geschmack?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/977085089254379520)|
 |22.03.2018|#Aufwachfrage: Welche Kriege führst du?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/976722648418934784)|
 |22.03.2018|#Aufwachfrage: Welche Kriege führst du?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/976722648418934784)|
 |21.03.2018|#Aufwachfrage: Auf welchen Moment bist du am stolzesten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/976360362198159360)|
 |20.03.2018|#Aufwachfrage: Was ist bei dir im Job ein Tabu-Thema?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/975997932150444032)|
-|19.03.2018|#Aufwachfrage: Was würdest du gerne mal gefragt werden?
-(inspiriert durch ""The Art of Asking"" von @amandapalmer)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/975635555013849089)|
+|19.03.2018|#Aufwachfrage: Was würdest du gerne mal gefragt werden?<br/>(inspiriert durch "The Art of Asking" von @amandapalmer)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/975635555013849089)|
 |16.03.2018|#Aufwachfrage: Bist du oft #feige?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/974548332625281024)|
 |15.03.2018|#Aufwachfrage: Wie praktiziert man #Respekt im Job?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/974185952536158209)|
 |14.03.2018|#Aufwachfrage: Worüber empörst du dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/973823577878384640)|
@@ -1503,57 +1219,39 @@ Meine Hypothese ist, dass man ohne gemeinsame Sprac… https://t.co/76Irm9gdUt|[
 |05.03.2018|#Aufwachfrage: Welcher Wochentag funktioniert bei dir am besten für Anfänge?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/970562079072641024)|
 |02.03.2018|#Aufwachfrage: Wann isses genug?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/969474902632927233)|
 |01.03.2018|#Aufwachfrage: Was bzw. womit wirst du heute spielen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/969112549714202625)|
-|28.02.2018|#Aufwachfrage: Ab wann würdest du ein #Scrum Team als #stubenrein bezüglich Scrum bezeichnen?
-#agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968750150255595521)|
-|28.02.2018|#Aufwachfrage: Ab wann würdest du ein #Scrum Team als #stubenrein bezüglich Scrum bezeichnen?
-#agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968750150255595521)|
-|27.02.2018|#Aufwachfrage: Woran merkst du in den Tagen nach einer Konferenz oder Weiterbildung, dass sie über die Maßen gut für dich war?
-#p4a18|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968387808896471040)|
-|27.02.2018|#Aufwachfrage: Woran merkst du in den Tagen nach einer Konferenz oder Weiterbildung, dass sie über die Maßen gut für dich war?
-#p4a18|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968387808896471040)|
-|26.02.2018|#Aufwachfrage: Wie ist deine persönliche Definition für „#Verbundenheit“?
-(inspiriert durch ein Wochenende auf der Play4Agile #p4a18)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968025387551854592)|
+|28.02.2018|#Aufwachfrage: Ab wann würdest du ein #Scrum Team als #stubenrein bezüglich Scrum bezeichnen?<br/>#agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968750150255595521)|
+|28.02.2018|#Aufwachfrage: Ab wann würdest du ein #Scrum Team als #stubenrein bezüglich Scrum bezeichnen?<br/>#agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968750150255595521)|
+|27.02.2018|#Aufwachfrage: Woran merkst du in den Tagen nach einer Konferenz oder Weiterbildung, dass sie über die Maßen gut für dich war?<br/>#p4a18|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968387808896471040)|
+|27.02.2018|#Aufwachfrage: Woran merkst du in den Tagen nach einer Konferenz oder Weiterbildung, dass sie über die Maßen gut für dich war?<br/>#p4a18|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968387808896471040)|
+|26.02.2018|#Aufwachfrage: Wie ist deine persönliche Definition für „#Verbundenheit“?<br/>(inspiriert durch ein Wochenende auf der Play4Agile #p4a18)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/968025387551854592)|
 |23.02.2018|#Aufwachfrage: Woran erkennst du, dass ein Kapitel in deinem Leben dem Ende zu geht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/966938224592527360)|
 |22.02.2018|#Aufwachfrage: Was lässt deine Augen leuchten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/966575830691385344)|
 |21.02.2018|#Aufwachfrage: Bist du lieber Lehrer/-in oder Schüler/-in, wenn du nur eins von beiden haben kannst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/966213505765576704)|
 |21.02.2018|#Aufwachfrage: Bist du lieber Lehrer/-in oder Schüler/-in, wenn du nur eins von beiden haben kannst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/966213505765576704)|
-|20.02.2018|#Aufwachfrage: Was hast du zum Spaß gemacht, als du ca. zehn Jahre alt warst? Machst du das noch immer?
-(inspired b… https://t.co/sHjprCVsfl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/965851022475264000)|
-|19.02.2018|#Aufwachfrage: Was ist die härteste  Lektion, die du bisher lernen musstest?
-(inspired by the Podcast „The Coaching… https://t.co/qsSZskGGHY|[Twitter URL](http://twitter.com/udowiegaertner/statuses/965488674648612865)|
-|16.02.2018|#Aufwachfrage: Wie sieht deine Schöpfkelle zum #Hoffnung schöpfen aus?
-#Hoffnungsschoepfkelle|[Twitter URL](http://twitter.com/udowiegaertner/statuses/964401513845018625)|
-|16.02.2018|#Aufwachfrage: Wie sieht deine Schöpfkelle zum #Hoffnung schöpfen aus?
-#Hoffnungsschoepfkelle|[Twitter URL](http://twitter.com/udowiegaertner/statuses/964401513845018625)|
-|15.02.2018|#Aufwachfrage: Lieber andere inspirieren oder selber inspiriert werden, wenn du dich für eins von beiden entscheiden müsstest?
-#inspiration|[Twitter URL](http://twitter.com/udowiegaertner/statuses/964039105658212352)|
+|20.02.2018|#Aufwachfrage: Was hast du zum Spaß gemacht, als du ca. zehn Jahre alt warst? Machst du das noch immer?<br/>(inspired b… https://t.co/sHjprCVsfl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/965851022475264000)|
+|19.02.2018|#Aufwachfrage: Was ist die härteste  Lektion, die du bisher lernen musstest?<br/>(inspired by the Podcast „The Coaching… https://t.co/qsSZskGGHY|[Twitter URL](http://twitter.com/udowiegaertner/statuses/965488674648612865)|
+|16.02.2018|#Aufwachfrage: Wie sieht deine Schöpfkelle zum #Hoffnung schöpfen aus?<br/>#Hoffnungsschoepfkelle|[Twitter URL](http://twitter.com/udowiegaertner/statuses/964401513845018625)|
+|16.02.2018|#Aufwachfrage: Wie sieht deine Schöpfkelle zum #Hoffnung schöpfen aus?<br/>#Hoffnungsschoepfkelle|[Twitter URL](http://twitter.com/udowiegaertner/statuses/964401513845018625)|
+|15.02.2018|#Aufwachfrage: Lieber andere inspirieren oder selber inspiriert werden, wenn du dich für eins von beiden entscheiden müsstest?<br/>#inspiration|[Twitter URL](http://twitter.com/udowiegaertner/statuses/964039105658212352)|
 |14.02.2018|#Aufwachfrage: Wie schaffst du es, dass wichtige #Kommunikation stattfindet, obwohl niemand Lust darauf zu haben scheint?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/963676709844324352)|
 |13.02.2018|#Aufwachfrage: Wie funktioniert deine persönliche Schutzimprägnierung? https://t.co/4eIfsxAGDa|[Twitter URL](http://twitter.com/udowiegaertner/statuses/963314401859309568)|
 |13.02.2018|#Aufwachfrage: Wie funktioniert deine persönliche Schutzimprägnierung? https://t.co/4eIfsxAGDa|[Twitter URL](http://twitter.com/udowiegaertner/statuses/963314401859309568)|
-|12.02.2018|#Aufwachfrage: Was ist dein Tipp, um Menschen abzuholen und mitzunehmen?
-(Bitte keine Kalauer, ich meine die Frage ernst)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/962951959396352000)|
-|12.02.2018|#Aufwachfrage: Was ist dein Tipp, um Menschen abzuholen und mitzunehmen?
-(Bitte keine Kalauer, ich meine die Frage ernst)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/962951959396352000)|
+|12.02.2018|#Aufwachfrage: Was ist dein Tipp, um Menschen abzuholen und mitzunehmen?<br/>(Bitte keine Kalauer, ich meine die Frage ernst)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/962951959396352000)|
+|12.02.2018|#Aufwachfrage: Was ist dein Tipp, um Menschen abzuholen und mitzunehmen?<br/>(Bitte keine Kalauer, ich meine die Frage ernst)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/962951959396352000)|
 |09.02.2018|#Aufwachfrage: Würde dein Team (bzw du) die 5%-Hürde einer Wiederwahl schaffen, wenn eure Kunden die Belegschaft de… https://t.co/LSDmLl2etq|[Twitter URL](http://twitter.com/udowiegaertner/statuses/961864781354254336)|
 |07.02.2018|#Aufwachfrage: Was hattest du schon früher erkannt als die meisten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/961140022136180736)|
 |06.02.2018|#Aufwachfrage: Wie "unlernst" du unerwünschte bzw. nicht länger erwünschte Verhaltensweisen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/960777648728412165)|
-|05.02.2018|#Aufwachfrage: Wie lange dauert es bei einer dir zugefügten mittelschweren mentalen Verletzung, bis du dem ""Missetäter"" vergibst?
-#vergebung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/960415193615491072)|
-|05.02.2018|#Aufwachfrage: Wie lange dauert es bei einer dir zugefügten mittelschweren mentalen Verletzung, bis du dem ""Missetäter"" vergibst?
-#vergebung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/960415193615491072)|
+|05.02.2018|#Aufwachfrage: Wie lange dauert es bei einer dir zugefügten mittelschweren mentalen Verletzung, bis du dem "Missetäter" vergibst?<br/>#vergebung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/960415193615491072)|
+|05.02.2018|#Aufwachfrage: Wie lange dauert es bei einer dir zugefügten mittelschweren mentalen Verletzung, bis du dem "Missetäter" vergibst?<br/>#vergebung|[Twitter URL](http://twitter.com/udowiegaertner/statuses/960415193615491072)|
 |02.02.2018|@loesungsweise Es ist ein Experiment. Ich will einfach mal schauen, wie die Beteiligung bei der #Aufwachfrage so is… https://t.co/L8pNYoYtVx|[Twitter URL](http://twitter.com/udowiegaertner/statuses/959409291634659329)|
 |02.02.2018|#BarelyAwakeQuestion: If you wake up in the morning and you had an amazing "wet" dream about #Agile,  what would ha… https://t.co/FEx1nz1OEr|[Twitter URL](http://twitter.com/udowiegaertner/statuses/959328109265813504)|
 |01.02.2018|#BarelyAwakeQuestion: If you wake up in the morning and you had a really bad weird dream about #Agile,  what would… https://t.co/i9h0sw8m43|[Twitter URL](http://twitter.com/udowiegaertner/statuses/958965710310567938)|
-|31.01.2018|#BarelyAwakeQuestion: What happened during your last #flow moment in one of your business #meetings?
-#Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/958603310872834053)|
+|31.01.2018|#BarelyAwakeQuestion: What happened during your last #flow moment in one of your business #meetings?<br/>#Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/958603310872834053)|
 |30.01.2018|#BarelyAwakeQuestion: When was the last time, a #meeting felt like a complete waste of time to you?… https://t.co/KjFUXCF9Pl|[Twitter URL](http://twitter.com/udowiegaertner/statuses/958240967005532160)|
-|29.01.2018|#BarelyAwakeQuestion: What was the last Aha-Moment for you?
-#aha #AhaMoment #Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/957878483287359488)|
-|26.01.2018|#BsrelyAwakeQuestion: What is the first indicator für you that's something wrong in your  team?
-#Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/956781166929108992)|
+|29.01.2018|#BarelyAwakeQuestion: What was the last Aha-Moment for you?<br/>#aha #AhaMoment #Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/957878483287359488)|
+|26.01.2018|#BsrelyAwakeQuestion: What is the first indicator für you that's something wrong in your  team?<br/>#Aufwachfrage|[Twitter URL](http://twitter.com/udowiegaertner/statuses/956781166929108992)|
 |25.01.2018|#Aufwachfrage: Zu welcher Gelegenheit hast du zuletzt im Job absichtlich alberne oder absurde Geräusche gemacht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/956431183788892160)|
-|24.01.2018|#Aufwachfrage: Was hast du aufgegeben, obwohl es dir eigentlich gut gefallen hat?
-CC @AufwachBot|[Twitter URL](http://twitter.com/udowiegaertner/statuses/956076461311610881)|
+|24.01.2018|#Aufwachfrage: Was hast du aufgegeben, obwohl es dir eigentlich gut gefallen hat?<br/>CC @AufwachBot|[Twitter URL](http://twitter.com/udowiegaertner/statuses/956076461311610881)|
 |07.01.2018|@loesungsweise Danke für die Rückmeldung. Ich vermisse sie auch. Das Aufhören mit der #Aufwachfrage war ein Versuch… https://t.co/kdknQuDdhE|[Twitter URL](http://twitter.com/udowiegaertner/statuses/949970119437975552)|
 |22.08.2017|Hi Freunde der #Aufwachfrage. Wie taugt euch der @AufwachBot, den @oliverlorenz während meiner Offline-Zeit ins Leben gerufen hat?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/899882638693081088)|
 |07.07.2017|Die nächsten 5 Wochen twittere ich keine #Aufwachfrage. Es wäre super, wenn ihr übernehmen könntet. Ich probiere mal etwas Online-Diät.|[Twitter URL](http://twitter.com/udowiegaertner/statuses/883211651222315008)|
@@ -1564,13 +1262,10 @@ CC @AufwachBot|[Twitter URL](http://twitter.com/udowiegaertner/statuses/95607646
 |04.07.2017|#Aufwachfrage: Welche Erkenntnis hast du deinen Kollegen mutmaßlich voraus?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/882124404326637568)|
 |03.07.2017|#Aufwachfrage: Wenn das Leben eine Autofahrt wäre, in welchem Gang wärst du dieser Tage unterwegs und wie wäre dein Schaltverhalten?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/881761960769015809)|
 |30.06.2017|#Aufwachfrage: Wie schüttelst du Schuldgefühle ab?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/880674768047026177)|
-|29.06.2017|#Aufwachfrage: Hast du dich jemals bei einem deiner Mentoren bedankt?
-(inspiriert durch einen Talk von @timothep bei #DWX17)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/880312422174777345)|
+|29.06.2017|#Aufwachfrage: Hast du dich jemals bei einem deiner Mentoren bedankt?<br/>(inspiriert durch einen Talk von @timothep bei #DWX17)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/880312422174777345)|
 |27.06.2017|#Aufwachfrage: Um welche Themen geht es, wenn du #Selbstgespräche führst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/879587616697536513)|
-|26.06.2017|#Aufwachfrage: What if #kindness was a muscle and you had to train it to grow it? When was your last workout?
-(thx to @timothep)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/879225250818469890)|
-|26.06.2017|#Aufwachfrage: What if #kindness was a muscle and you had to train it to grow it? When was your last workout?
-(thx to @timothep)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/879225250818469890)|
+|26.06.2017|#Aufwachfrage: What if #kindness was a muscle and you had to train it to grow it? When was your last workout?<br/>(thx to @timothep)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/879225250818469890)|
+|26.06.2017|#Aufwachfrage: What if #kindness was a muscle and you had to train it to grow it? When was your last workout?<br/>(thx to @timothep)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/879225250818469890)|
 |23.06.2017|#Aufwachfrage: Was muss geschehen, damit du dein #Ehrenwort gibst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/878138117244334080)|
 |22.06.2017|#Aufwachfrage: Wie erklärt man den Begriff #Schicksal?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/877775701784514560)|
 |21.06.2017|#Aufwachfrage: Woran merkst du, dass du im #Penislängenvergleichsmodus bist? (gibt's was ähnliches eigentlich auch bei Frauen?)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/877413289034002432)|
@@ -1614,10 +1309,8 @@ CC @AufwachBot|[Twitter URL](http://twitter.com/udowiegaertner/statuses/95607646
 |12.05.2017|#Aufwachfrage: Was im wahren Leben hättest du anstatt in 3D lieber in 2D?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/862917808631492608)|
 |12.05.2017|#Aufwachfrage: Was im wahren Leben hättest du anstatt in 3D lieber in 2D?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/862917808631492608)|
 |11.05.2017|#Aufwachfrage: Was würdest du auf die "Safety-Card" in deinem Team-Raum schreiben? https://t.co/7k1r3CeMC2|[Twitter URL](http://twitter.com/udowiegaertner/statuses/862555398401912832)|
-|10.05.2017|#Aufwachfrage: Was ist deine Definition von ""Agilität"" im beruflichen Kontext?
-#Agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/862193035869913088)|
-|10.05.2017|#Aufwachfrage: Was ist deine Definition von ""Agilität"" im beruflichen Kontext?
-#Agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/862193035869913088)|
+|10.05.2017|#Aufwachfrage: Was ist deine Definition von "Agilität" im beruflichen Kontext?<br/>#Agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/862193035869913088)|
+|10.05.2017|#Aufwachfrage: Was ist deine Definition von "Agilität" im beruflichen Kontext?<br/>#Agile|[Twitter URL](http://twitter.com/udowiegaertner/statuses/862193035869913088)|
 |08.05.2017|#Aufwachfrage: In welcher Hinsicht kann man sich auf dich NICHT verlassen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/861468206648758273)|
 |08.05.2017|#Aufwachfrage: In welcher Hinsicht kann man sich auf dich NICHT verlassen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/861468206648758273)|
 |05.05.2017|#Aufwachfrage: Wer dich kennt, weiß, dass du...?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/860381043622367232)|
@@ -1652,10 +1345,8 @@ CC @AufwachBot|[Twitter URL](http://twitter.com/udowiegaertner/statuses/95607646
 |05.04.2017|#Aufwachfrage: Worin bist du perfektionistisch?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/849509486314364928)|
 |05.04.2017|#Aufwachfrage: Worin bist du perfektionistisch?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/849509486314364928)|
 |04.04.2017|#Aufwachfrage: Wann ist Zynismus ok?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/849147062188986368)|
-|03.04.2017|#Aufwachfrage: Ab wann wird eine schlechte Angewohnheit zur Sucht?
-(Danke an @joergpreiss für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/848784691381620736)|
-|03.04.2017|#Aufwachfrage: Ab wann wird eine schlechte Angewohnheit zur Sucht?
-(Danke an @joergpreiss für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/848784691381620736)|
+|03.04.2017|#Aufwachfrage: Ab wann wird eine schlechte Angewohnheit zur Sucht?<br/>(Danke an @joergpreiss für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/848784691381620736)|
+|03.04.2017|#Aufwachfrage: Ab wann wird eine schlechte Angewohnheit zur Sucht?<br/>(Danke an @joergpreiss für die Frage)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/848784691381620736)|
 |31.03.2017|#Aufwachfrage: Was machst du, wenn du einen Kollegen bei einem Job-Thema beim Mogeln (bei eher einer Kleinigkeit) beobachtest?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/847697574731554821)|
 |30.03.2017|#Aufwachfrage: Wie fütterst du dein Ego?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/847335186547093505)|
 |29.03.2017|#Aufwachfrage: Wie zähmst du dein Ego?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/846972705824002048)|
@@ -1668,28 +1359,21 @@ CC @AufwachBot|[Twitter URL](http://twitter.com/udowiegaertner/statuses/95607646
 |24.03.2017|#Aufwachfrage: Wie würdest du Darth Vader helfen, eine noch bessere Führungskraft zu werden?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/845175865705058304)|
 |23.03.2017|#Aufwachfrage: In welcher Hinsicht tapst du noch völlig im Dunkeln?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/844813567358451716)|
 |22.03.2017|#Aufwachfrage: Wenn du dich an eine #Retrospektive erinnerst, die richtig wertvoll war - was hat den Wert ausgemacht?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/844451086148755459)|
-|21.03.2017|#Aufwachfrage: Öfter #Rückenwind oder #Gegenwind?
-(inspiriert durch den empfehlenswerten Podcast #FreakonomicsRadio https://t.co/iXXhHd4kzL)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/844088836363829251)|
+|21.03.2017|#Aufwachfrage: Öfter #Rückenwind oder #Gegenwind?<br/>(inspiriert durch den empfehlenswerten Podcast #FreakonomicsRadio https://t.co/iXXhHd4kzL)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/844088836363829251)|
 |20.03.2017|#Aufwachfrage: Wo hat nicht Klugheit oder Fleiß, sondern einfach nur #Glück deiner Karriere einen Schub gegeben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/843726354189336576)|
 |20.03.2017|#Aufwachfrage: Wo hat nicht Klugheit oder Fleiß, sondern einfach nur #Glück deiner Karriere einen Schub gegeben?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/843726354189336576)|
 |17.03.2017|#Aufwachfrage: Sollten wir Gutes aus den falschen Gründen tun?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/842639153087090688)|
 |16.03.2017|#Aufwachfrage: Wie war es vor 10 Jahren für dich verglichen mit heute?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/842276748918194176)|
 |16.03.2017|#Aufwachfrage: Wie war es vor 10 Jahren für dich verglichen mit heute?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/842276748918194176)|
-|15.03.2017|#Aufwachfrage: Wofür bist du bereit, zu leiden?
-(inspiriert durch das Buch ""The Subtle Art of Not Giving A Fuck"" von @IAmMarkManson)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/841914433639194629)|
+|15.03.2017|#Aufwachfrage: Wofür bist du bereit, zu leiden?<br/>(inspiriert durch das Buch "The Subtle Art of Not Giving A Fuck" von @IAmMarkManson)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/841914433639194629)|
 |14.03.2017|#Aufwachfrage: Welche durchgezogene Linie hast du im übertragenen Sinne im Job schon bewusst überfahren? https://t.co/9AjEHCVDX7|[Twitter URL](http://twitter.com/udowiegaertner/statuses/841552011778805760)|
 |14.03.2017|#Aufwachfrage: Welche durchgezogene Linie hast du im übertragenen Sinne im Job schon bewusst überfahren? https://t.co/9AjEHCVDX7|[Twitter URL](http://twitter.com/udowiegaertner/statuses/841552011778805760)|
-|13.03.2017|#Aufwachfrage: Was macht man mit wiederkehrender, unangemessener Kritik?
-(by @HerrLoesch)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/841189595140247553)|
-|10.03.2017|#Aufwachfrage: Wenn heute internationaler Nerd-Day wäre, wofür würde/sollte man dich feiern?
-#NerdDay|[Twitter URL](http://twitter.com/udowiegaertner/statuses/840102475965190144)|
-|10.03.2017|#Aufwachfrage: Wenn heute internationaler Nerd-Day wäre, wofür würde/sollte man dich feiern?
-#NerdDay|[Twitter URL](http://twitter.com/udowiegaertner/statuses/840102475965190144)|
+|13.03.2017|#Aufwachfrage: Was macht man mit wiederkehrender, unangemessener Kritik?<br/>(by @HerrLoesch)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/841189595140247553)|
+|10.03.2017|#Aufwachfrage: Wenn heute internationaler Nerd-Day wäre, wofür würde/sollte man dich feiern?<br/>#NerdDay|[Twitter URL](http://twitter.com/udowiegaertner/statuses/840102475965190144)|
+|10.03.2017|#Aufwachfrage: Wenn heute internationaler Nerd-Day wäre, wofür würde/sollte man dich feiern?<br/>#NerdDay|[Twitter URL](http://twitter.com/udowiegaertner/statuses/840102475965190144)|
 |09.03.2017|#Aufwachfrage: Weswegen würdest du Krieg führen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/839740162229874688)|
-|08.03.2017|#Aufwachfrage: Wann verspürst du ein inneres Gefühl von Frieden und Glück?
-(by @joergpreiss, inspiriert durch Thich Nhat Hanh)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/839377720849149952)|
-|08.03.2017|#Aufwachfrage: Wann verspürst du ein inneres Gefühl von Frieden und Glück?
-(by @joergpreiss, inspiriert durch Thich Nhat Hanh)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/839377720849149952)|
+|08.03.2017|#Aufwachfrage: Wann verspürst du ein inneres Gefühl von Frieden und Glück?<br/>(by @joergpreiss, inspiriert durch Thich Nhat Hanh)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/839377720849149952)|
+|08.03.2017|#Aufwachfrage: Wann verspürst du ein inneres Gefühl von Frieden und Glück?<br/>(by @joergpreiss, inspiriert durch Thich Nhat Hanh)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/839377720849149952)|
 |07.03.2017|#Aufwachfrage: Wenn du alle Plakatwände und Litfaßsäulen in deiner Stadt für eine Woche bekleben dürftest, was wäre… https://t.co/9xKmuFnWUg|[Twitter URL](http://twitter.com/udowiegaertner/statuses/839015318957748224)|
 |06.03.2017|#Aufwachfrage: Welche Eigenschaften hatte dein #Mentor?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/838652895490895873)|
 |06.03.2017|#Aufwachfrage: Welche Eigenschaften hatte dein #Mentor?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/838652895490895873)|
@@ -1707,17 +1391,12 @@ CC @AufwachBot|[Twitter URL](http://twitter.com/udowiegaertner/statuses/95607646
 |21.02.2017|#Aufwachfrage: Wenn dein Berufsleben ein Rockkonzert wäre, welchen deiner größten Erfolge würdest du als Zugabe spielen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/833941849454813184)|
 |20.02.2017|#Aufwachfrage: Wie bewahrst du dir genug "ich" in all dem "wir"?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/833579507898544132)|
 |20.02.2017|#Aufwachfrage: Wie bewahrst du dir genug "ich" in all dem "wir"?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/833579507898544132)|
-|17.02.2017|#GetAwakeQuestion: What #Agile Game/Simulation do you like/recommend the most?
-
-Hugs to today's @Play4Agile conference. #Aufwachfrage #p4a17|[Twitter URL](http://twitter.com/udowiegaertner/statuses/832492364824399872)|
+|17.02.2017|#GetAwakeQuestion: What #Agile Game/Simulation do you like/recommend the most?<br/><br/>Hugs to today's @Play4Agile conference. #Aufwachfrage #p4a17|[Twitter URL](http://twitter.com/udowiegaertner/statuses/832492364824399872)|
 |16.02.2017|#Aufwachfrage: in welcher Hinsicht bist du ultra-konservativ?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/832129906633011200)|
 |16.02.2017|#Aufwachfrage: in welcher Hinsicht bist du ultra-konservativ?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/832129906633011200)|
 |15.02.2017|#Aufwachfrage: Woran merken deine Kollegen, dass du gerade dein Bestes gibst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/831767506138308609)|
 |15.02.2017|#Aufwachfrage: Woran merken deine Kollegen, dass du gerade dein Bestes gibst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/831767506138308609)|
-|14.02.2017|I am everything you want me to be.
-#LEGO 
----
-(inspired by today's #Aufwachfrage) https://t.co/yhiEiEHydI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/831453164150861825)|
+|14.02.2017|I am everything you want me to be.<br/>#LEGO <br/>---<br/>(inspired by today's #Aufwachfrage) https://t.co/yhiEiEHydI|[Twitter URL](http://twitter.com/udowiegaertner/statuses/831453164150861825)|
 |14.02.2017|#Aufwachfrage: #Lego oder #Playmobil?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/831405165655756800)|
 |14.02.2017|#Aufwachfrage: #Lego oder #Playmobil?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/831405165655756800)|
 |13.02.2017|#Aufwachfrage: Was aus den guten alten Zeiten würdest du gerne wieder haben? Warum tust du es nicht einfach diese Woche? (by @ArminSchubert)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/831042766171955200)|
@@ -1732,12 +1411,9 @@ Hugs to today's @Play4Agile conference. #Aufwachfrage #p4a17|[Twitter URL](http:
 |07.02.2017|#Aufwachfrage: Wie schaffst du es, Vorurteile abzuschütteln?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/828868401481281537)|
 |06.02.2017|#Aufwachfrage: Welche gute Tat, die DIR jemand tun wollte, hast du nicht zugelassen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/828506136634605568)|
 |06.02.2017|#Aufwachfrage: Welche gute Tat, die DIR jemand tun wollte, hast du nicht zugelassen?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/828506136634605568)|
-|03.02.2017|#Aufwachfrage: Worin bist du radikal?
-(Frage inspiriert durch @janekf)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/827418858038362115)|
-|03.02.2017|#Aufwachfrage: Worin bist du radikal?
-(Frage inspiriert durch @janekf)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/827418858038362115)|
-|02.02.2017|#Aufwachfrage: Woran bist du heute schuld?
-Danke für die Frage an @dhommel.|[Twitter URL](http://twitter.com/udowiegaertner/statuses/827056513915170816)|
+|03.02.2017|#Aufwachfrage: Worin bist du radikal?<br/>(Frage inspiriert durch @janekf)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/827418858038362115)|
+|03.02.2017|#Aufwachfrage: Worin bist du radikal?<br/>(Frage inspiriert durch @janekf)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/827418858038362115)|
+|02.02.2017|#Aufwachfrage: Woran bist du heute schuld?<br/>Danke für die Frage an @dhommel.|[Twitter URL](http://twitter.com/udowiegaertner/statuses/827056513915170816)|
 |01.02.2017|#Aufwachfrage: Was sollte dir eigentlich "egaler" sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/826694072966512642)|
 |01.02.2017|#Aufwachfrage: Was sollte dir eigentlich "egaler" sein?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/826694072966512642)|
 |31.01.2017|#Aufwachfrage: Wovor drückst du dich?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/826331690213711872)|
@@ -1761,10 +1437,8 @@ Danke für die Frage an @dhommel.|[Twitter URL](http://twitter.com/udowiegaertne
 |19.01.2017|#Aufwachfrage: Worin fühlst du dich authentisch im Job!|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821983118257229826)|
 |18.01.2017|#Aufwachfrage: Wie lobst du deinen Chef?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821620749756723200)|
 |17.01.2017|@feststelltaste Passt zur #Aufwachfrage von vor wenigen Tagen: "Wofür würdest du ein eigenes Wort erfinden wollen?" :-)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821444424739733504)|
-|17.01.2017|#Aufwachfrage: Wofür würdest du ein eigenes Wort erfinden wollen? 
-(Frage nochmal nachgereicht, da Hashtag vergessen. Thx @YellowBrickC)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821443978465832960)|
-|17.01.2017|#Aufwachfrage: Wofür würdest du ein eigenes Wort erfinden wollen? 
-(Frage nochmal nachgereicht, da Hashtag vergessen. Thx @YellowBrickC)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821443978465832960)|
+|17.01.2017|#Aufwachfrage: Wofür würdest du ein eigenes Wort erfinden wollen? <br/>(Frage nochmal nachgereicht, da Hashtag vergessen. Thx @YellowBrickC)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821443978465832960)|
+|17.01.2017|#Aufwachfrage: Wofür würdest du ein eigenes Wort erfinden wollen? <br/>(Frage nochmal nachgereicht, da Hashtag vergessen. Thx @YellowBrickC)|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821443978465832960)|
 |17.01.2017|#Aufwachfrage: Was findest du (ernsthaft) gut an Donald #Trump?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821258301644087296)|
 |17.01.2017|#Aufwachfrage: Was findest du (ernsthaft) gut an Donald #Trump?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/821258301644087296)|
 |13.01.2017|#Aufwachfrage: Wie startet man einen Tag ohne Aufwachfrage? / Danke für die Frage an @djobst + @oliverlorenz|[Twitter URL](http://twitter.com/udowiegaertner/statuses/819808728341835776)|
@@ -1783,9 +1457,5 @@ Danke für die Frage an @dhommel.|[Twitter URL](http://twitter.com/udowiegaertne
 |29.12.2016|#Aufwachfrage: Ist der Default von Menschen "gut" oder "böse"?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/814372906507653120)|
 |28.12.2016|#Aufwachfrage: Wie müsste ein neuer #Heiland sein, damit du ihm folgst?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/814010577093791744)|
 |27.12.2016|#Aufwachfrage: Warum ist es gut, dass Weihnachten endlich vorbei ist?|[Twitter URL](http://twitter.com/udowiegaertner/statuses/813648162296578048)|
-
-
-
-
 
 |Work in progress. To be continued...| | |
