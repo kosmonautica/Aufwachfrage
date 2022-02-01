@@ -1,4 +1,4 @@
-Diese Seite sammelt die täglichen Aufwachfragen, die [@UdoWiegaertner](https://twitter.com/udowiegaertner) werktäglich auf Twitter unter dem Hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query) stellt.
+Diese Seite sammelt die täglichen Aufwachfragen, die [@UdoWiegaertner](https://twitter.com/udowiegaertner) seit Dezember 2015 fast jeden Werktag auf Twitter unter dem Hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query) stellt.
 
 
 
