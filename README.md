@@ -3,6 +3,7 @@
 ## Hintergrund
 Seit Dezember 2015 stellt [@UdoWiegaertner](https://twitter.com/udowiegaertner) fast jeden Werktagmorgen auf Twittere Frage unter dem Hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query).
 Aus den Fragen entsteht oft ein interessanter, vielschichtiger und fast immer sehr wertschätzender Austausch von Sichtweisen und Ideen unter den Twitter-Usern.
+Bislang (Stand 01.02.2022) sind mehr als 1100 Fragen zusammengekommen.
 
 ## Zweck dieser Seite
 Diese Seite sammelt die #Aufwachfragen und hilft zum einen beim schnellen Zugriff auf die zugehörigen Gesprächs-Threads auf Twitter.
