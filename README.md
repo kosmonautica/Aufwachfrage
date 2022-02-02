@@ -5,6 +5,10 @@ Seit Dezember 2015 stellt [@UdoWiegaertner](https://twitter.com/udowiegaertner) 
 Aus den Fragen entsteht oft ein interessanter, vielschichtiger und fast immer sehr wertschätzender Austausch von Sichtweisen und Ideen unter den Twitter-Usern.<br/>
 Bislang (Stand 01.02.2022) sind mehr als 1100 Fragen zusammengekommen.
 
+## Warum heißt das "Aufwachfrage"?
+Die Fragen entstehen in aller Regel kurz nach dem Aufwachen in der Phase am frühen Morgen, in der das Gehirn zwar schon wach ist aber noch nicht in den 100 TODOs des Arbeitstages feststeckt. Eine magische Zeitspanne. Der Tweet geht deshalb auch immer früh am Morgen raus.
+"Aufwachfrage" ist nicht als ein "wacht endlich auf, ihr Schlafschafe" zu verstehen.
+
 ## Zweck dieser Seite
 Diese Seite sammelt die #Aufwachfragen und hilft zum einen beim schnellen Zugriff auf die zugehörigen Gesprächs-Threads auf Twitter.
 Zum anderen lädt die Seite zum Stöbern in den Fragen ein.
