@@ -1172,180 +1172,180 @@ Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
 |29.12.2016|#Aufwachfrage: Ist der Default von Menschen "gut" oder "böse"?|[Twitter](http://twitter.com/udowiegaertner/statuses/814372906507653120)|
 |28.12.2016|#Aufwachfrage: Wie müsste ein neuer #Heiland sein, damit du ihm folgst?|[Twitter](http://twitter.com/udowiegaertner/statuses/814010577093791744)|
 |27.12.2016|#Aufwachfrage: Warum ist es gut, dass Weihnachten endlich vorbei ist?|[Twitter](http://twitter.com/udowiegaertner/statuses/813648162296578048)|
-|23.12.2016|#Aufwachfrage: Wann bist du zuletzt ohne Anlass bewusst ganz ganz langsam gegangen (Smartphone-Starren zählt nicht)?||
-|22.12.2016|#Aufwachfrage: Was findest du großartig an dir?||
-|21.12.2016|#Aufwachfrage: Wie viele von 10 deiner Tage würdest du als mindestens "gut" einstufen?||
-|20.12.2016|#Aufwachfrage: Wie viele Sekunden #Schweigen hältst du bei Augenkontakt während eines Dialogs aus?||
-|19.12.2016|#Aufwachfrage: Hat dein gestriger Tag dich größer oder kleiner gemacht?||
-|15.12.2016|#Aufwachfrage: Warum schmückst du dich manchmal mit fremden Federn?||
-|14.12.2016|#Aufwachfrage: Welche drei Songs sind deine persönliche Essenz aus 2016 und warum?||
-|13.12.2016|#Aufwachfrage: Welchen Rat würdest du deinem eigenen ich von gestern 7:30 Uhr geben?||
-|12.12.2016|#Aufwachfrage: Was strengt dich über Gebühr an, obwohl es eigentlich nicht anstrengend sein sollte?||
-|09.12.2016|#Aufwachfrage: Was war das Wertvollste, das du diese Woche gelernt hast?||
-|08.12.2016|#Aufwachfrage: Wann hast du deinen Chef zuletzt konkret um Hilfe gebeten?||
-|07.12.2016|#Aufwachfrage: Was braucht du am dringendsten von deinem Chef?||
-|06.12.2016|#Aufwachfrage: Was "siehst" du, wenn du jetzt die Augen schließt!||
-|05.12.2016|#Aufwachfrage: Welcher #Sinneseindruck hat dich kürzlich überrascht?||
-|02.12.2016|#Aufwachfrage: In welchen Situationen sind dein Job und dein Privatleben perfekt im #Einklang?||
-|01.12.2016|#Aufwachfrage: Was gibt es anhand dieser #StoryCubes zu deinem aktuellen Befinden zu sagen (mind. 3 Würfel)? https://t.co/AZCb2ZrLSk||
-|30.11.2016|#Aufwachfrage: Welche Frage würdest du den Erwachsenen stellen, wenn du wieder ein 8-jähriges Kind wärst?||
-|29.11.2016|#Aufwachfrage: Wie würde dein Tag heute aussehen, wenn es der letzte eines 3-jährigen #Sabbatical wäre uns morgen der Job wieder begönne?||
-|28.11.2016|#Aufwachfrage: Unter welchen Umständen würdest du freudig ohne Gehalt arbeiten?||
-|25.11.2016|#Aufwachfrage: Warum hältst du dich freiwillig an #Regeln?||
-|24.11.2016|#Aufwachfrage: Warum brichst du #Regeln?||
-|22.11.2016|#Aufwachfrage: Was fällt dir spontan zum Thema #Regeln ein?||
-|21.11.2016|#Aufwachfrage: Was ist der Unterschied zwischen #Bescheidenheit und #Demut?||
-|18.11.2016|#Aufwachfrage: Wofür schämst du dich (Fremdschämen ausgenommen)?||
-|17.11.2016|#Aufwachfrage: Welches Lob hast du dir zuletzt selbst gegeben?||
-|16.11.2016|#Aufwachfrage: Hält man im Unternehmen mehr Schmerz oder Schwachsinn aus als privat? (by @svnwnk) / #manageagile||
-|15.11.2016|#Aufwachfrage: Was wäre der #Titelsong in der Verfilmung deines Lebens und warum gerade dieser Song?||
-|14.11.2016|#Aufwachfrage: Was würdest du gerne "great again" machen?||
-|11.11.2016|#WakeUpQuestion: As an #AgileCoach how would you coach @realDonaldTrump regarding #Agile Leadership?||
-|10.11.2016|#Aufwachfrage: Was schätzt du (ohne Ironie) an den USA?||
-|09.11.2016|#Aufwachfrage: Woraus ziehst du Hoffnung in trüben Zeiten?||
-|08.11.2016|#Aufwachfrage: Zu viel viel Prozent entsprichst du in einer durchschnittlichen Woche deinen eigenen Ansprüchen?||
-|07.11.2016|#Aufwachfrage: Wenn es Noise Cancellation Kopfhörer auch für Verhaltensweisen geben würde, welche würdest du ausblenden?||
-|04.11.2016|#Aufwachfrage: Woran merkst du am Abend, dass Dein Tag gut war?||
-|03.11.2016|#Aufwachfrage: Worüber führst du #Selbstgespräche?||
-|02.11.2016|#Aufwachfrage: Kann ein #Team eine #Seele haben?||
-|01.11.2016|#Aufwachfrage: Welchen Satz würdest du gerne mal wieder sagen?||
-|31.10.2016|#Aufwachfrage: Ist #Selbstlosigkeit naiv?||
-|28.10.2016|#Aufwachfrage: Welches deiner #Talente nutzt sich ab, je öfter du es benutzt?||
-|27.10.2016|#Aufwachfrage: Wie übt man sich in #Vergebung?||
-|26.10.2016|#Aufwachfrage: Welchen Satz würdest du gerne mal wieder hören?||
-|25.10.2016|#Aufwachfrage: Was macht #Angst mit dir?||
-|24.10.2016|#Aufwachfrage: Was ist #Würde für dich?||
-|21.10.2016|#Aufwachfrage: Womit unterbrichst du #Endlosschleifen in deinem Kopf?||
-|20.10.2016|#Aufwachfrage: Was ist für dich der Unterschied zwischen einem #Coach und einem #Mentor? / CC: @timothep||
-|19.10.2016|#Aufwachfrage: Woraus besteht dein ganz persönlicher #Ehrenkodex im Job?||
-|18.10.2016|#Aufwachfrage: In welcher Situation warst du kürzlich außerhalb deiner #Komfortzone?||
-|17.10.2016|#Aufwachfrage: Was wirst du heute verschenken?||
-|14.10.2016|#Aufwachfrage: Eher Vergangenheit, Gegenwart oder Zukunft (wenn du ganz ehrlich zu dir bist)?||
-|13.10.2016|#Aufwachfrage: In welchen Situationen siehst du (sinnbildlich) auf andere herab?||
-|12.10.2016|#Aufwachfrage: Wie oft lügst du an einem durchschnittlichen Tag?||
-|11.10.2016|#Aufwachfrage: Woran misst du dich?||
-|10.10.2016|#Aufwachfrage: Würdest du dich selber zum US-Prädidenten wählen wenn du zur Wahl stündest?||
-|07.10.2016|#Aufwachfrage: #TechnischeSchulden in Software kennen. Was sind hingegen #Kulturschulden in deiner Firma?||
-|06.10.2016|#Aufwachfrage: An welchem #Regressionsfehlern krankt eure #Firmenkultur?||
-|05.10.2016|#Aufwachfrage: Wie würdest du deine #Firmenkultur (positiv) hacken? #cultureHacking||
-|04.10.2016|#Aufwachfrage: Wie macht ihr #Refactoring von #Firmenkultur?||
-|03.10.2016|#Aufwachfrage: Warum reden wir öfter über #LegacyCode als über #LegacyCulture?||
-|30.09.2016|#Aufwachfrage: Wenn #Hochmut vor dem Fall kommt, was kommt dann eigentlich vor dem Hochmut?||
-|29.09.2016|#Aufwachfrage: Wann ist #Egoismus nicht egoistisch?||
-|28.09.2016|#Aufwachfrage: Welche eigentlich unbedeutende Kleinigkeit bringt dich zum Lächeln?||
-|27.09.2016|#Aufwachfrage: Welche eigentlich unbedeutende Kleinigkeit bringt dich zur Weißglut?||
-|26.09.2016|#Aufwachfrage: Was hast du letzte Woche erreicht/erlebt, das dich froh in diese neue Woche gehen lässt? (Thx @ArminSchubert f. d. Frage)||
-|23.09.2016|#Aufwachfrage: Was bedeutet Macht für dich?||
-|22.09.2016|#Aufwachfrage: Welche Dinge im Leben hast du reduziert?||
-|21.09.2016|#Aufwachfrage: Woran misst du deine eigene Loyalität?||
-|20.09.2016|#Aufwachfrage: Was ist das Wichtigste, das du von deinem #Mentor gelernt hast (wenn du einen hattest)?||
-|19.09.2016|#Aufwachfrage: Würdest du gerne gefunden werden?||
-|16.09.2016|#Aufwachfrage: Was muss passieren, bevor Du einen Rat annehmen kannst?||
-|15.09.2016|#Aufwachfrage: Wenn wir Marmeladenbrote wären - Wie fällt man beim Stürzen weniger oft auf die eigene Marmeladenseite?||
-|09.09.2016|#Aufwachfrage: Warum ist gerade heute ein besonderer Tag für dich?||
-|08.09.2016|#Aufwachfrage: Angenommen, die Welt wurde genau so erschaffen, wie es die #Bibel schreibt. Ist #Gott dabei #agil vorgegangen?||
-|07.09.2016|#Aufwachfrage: Was ist gut an #Traurigkeit?||
-|06.09.2016|#Aufwachfrage: Wie bringt du  Geist, Kreativität und Kommunikation auf Betriebstemperatur? https://t.co/z1qi2bLXLA||
-|05.09.2016|#Aufwachfrage: Was sind drei positive Situationen, die dir die letzten 3 Wochen passiert sind?||
-|04.09.2016|#Aufwachfrage: Wie lange dauert es, wenn Du nachtragend bist?||
-|12.08.2016|#Aufwachfrage: Wie ist es, wenn du lächelst, obwohl es schmerzt?||
-|11.08.2016|#Aufwachfrage: Wie funktioniert verbale Großzügigkeit?||
-|10.08.2016|#Aufwachfrage: Welchen Satz würdest du in deiner Pensionierungs-Abschiedsrede vor den Kollegen gerne aus tiefstem Herzen sagen können?||
-|09.08.2016|#Aufwachfrage: wenn du je ein Buch schreiben würdest, das im Titel den Zusatz "das Standardwerk" hat, wie sollte es heißen?||
-|08.08.2016|#Aufwachfrage: Wenn die letzten paar Monate in deinem Job eine Art Trainingslager für Olympia gewesen wären, für welche Sportart?||
-|05.08.2016|#Aufwachfrage: Woran denkst du beim Wort #Mitarbeitergespräch als erstes?||
-|04.08.2016|#Aufwachfrage: Welche Eigenschaften hätte die Person, die dich in deinem Job überflüssig machen würde?||
-|03.08.2016|#Aufwachfrage: Wie war das, als du zuletzt unmoralisch gehandelt hast?||
-|02.08.2016|#Aufwachfrage: Worauf hättest du gerne mehr Lust?||
-|01.08.2016|#Aufwachfrage: Was geht in dir vor, wenn du Rache übst?||
-|29.07.2016|#Aufwachfrage: Was macht dich heil?||
-|28.07.2016|#Aufwachfrage: Was macht dich kaputt?||
-|27.07.2016|#Aufwachfrage: Traust du dich trauern (außerhalb von Todesfällen)?||
-|26.07.2016|#Aufwachfrage: Wenn deine Arbeitsmenge mal unbewältigbar erscheint, ist es dann eigentlich zu wenig Butter oder zu viel Brot?||
-|25.07.2016|#Aufwachfrage: Wenn du ganz ehrlich zu dir bist, wonach trachtest du: Maximum, Minimum oder Optimum?||
-|22.07.2016|#Aufwachfrage: Woran erkenne ich, dass Du gerade offen bist?||
-|21.07.2016|#Aufwachfrage: Welchen Gedanken an die Arbeit kannst du nach Feierabend am schwersten abschütteln?||
-|20.07.2016|#Aufwachfrage: Wie viele Menschen kennen dich wirklich?||
-|19.07.2016|#Aufwachfrage: Worüber kannst du #schweigen?||
-|18.07.2016|#Aufwachfrage: Was ist dein Lieblingswort bzw -satz, wenn dir etwas fantastisch gut gelungen ist?||
-|15.07.2016|#Aufwachfrage: Was hast du häufiger: Selber verändern oder verändert werden?||
-|14.07.2016|#Aufwachfrage: Wie sieht #Flow aus?||
-|13.07.2016|#Aufwachfrage: Was ist die #Top5 Liste deiner persönlichen Süchte?||
-|12.07.2016|#Aufwachfrage: Wie gehst du mit #Scham um? Schämst du dich überhaupt?||
-|11.07.2016|#Aufwachfrage: Kämpfst du FÜR oder GEGEN Themen?||
-|08.07.2016|#Aufwachfrage: Wie wird man #Seelenforscher?||
-|07.07.2016|#Aufwachfrage: Was ist die älteste Erinnerung, die dir spontan einfällt?||
-|06.07.2016|#Aufwachfrage: Was macht dein Leben heute #lebenswert?||
-|05.07.2016|#Aufwachfrage: Wozu könnte ein Langzeit-Plan für's eigene Leben gut sein?||
-|04.07.2016|#Aufwachfrage: was würdest du tun, wenn du wüsstest, du kannst damit nicht scheitern? Danke für die Frage an j_franny.||
-|01.07.2016|#Aufwachfrage: Was ist dein Kern?||
-|30.06.2016|#Aufwachfrage: Worüber hast du dich vor einem Monat gefreut? (Erinnerung am besten ohne Kalender und Smartphone).||
-|29.06.2016|#Aufwachfrage: Wie geht das, ein Coach für sich selber zu sein?||
-|28.06.2016|#Aufwachfrage: Wie viele von max. 10 Eile-Punkten wird dein heutiger Tag wohl erreichen?||
-|27.06.2016|#Aufwachfrage: Wozu das alles?||
-|24.06.2016|#Aufwachfrage: Wie #frei bist du eigentlich?||
-|23.06.2016|#Aufwachfrage: Was ist deine prägnanteste Erinnerung an den gestrigen Tag?||
-|22.06.2016|#Aufwachfrage: Was hat dich stärker gemacht?||
-|21.06.2016|#Aufwachfrage: Welche Fehler machst du in Endlosschleife?||
-|20.06.2016|#Aufwachfrage: würdest du dich als Nachbarn haben wollen?||
-|17.06.2016|#Aufwachfrage: Wonach riecht für Dich #Zufriedenheit?||
-|13.06.2016|#Aufwachfrage: Wie übt man sich in Demut?||
-|10.06.2016|#Aufwachfrage: Wann war zuletzt Stille in deinem Kopf?||
-|09.06.2016|#Aufwachfrage: Was hält länger - Hass oder Zuneigung?||
-|08.06.2016|#Aufwachfrage: Muss sich ein Tag eigentlich lohnen?||
-|08.06.2016|#PreAufwachfrage: Wofür lohnt es sich, gleich aufzuwachen? (Die zeitlichen Widersprüche der Frage bitte ignorieren). #Aufwachfrage||
-|07.06.2016|#Aufwachfrage: Dein heutiger Tag - Komödie oder Tragödie?||
-|06.06.2016|#Aufwachfrage: Glaubst du dir?||
-|03.06.2016|#Aufwachfrage: Wie schwer ist dein Gemüt und wie wiegst du es?||
-|02.06.2016|#Aufwachfrage: Führst du dein eigenes Leben oder das eines anderen, der nur so heißt wie du?||
-|01.06.2016|#Aufwachfrage: Wirst Du heute Stress und Erschöpfung als Statussymbol vor Dir her tragen?||
-|31.05.2016|#Aufwachfrage: Was würdest Du mit dem heutigen Tag anstellen, wenn Du wüsstest, dass Du mind. 115 Jahre alt wirst?||
-|25.05.2016|#Aufwachfrage: Welche Gewohnheit würdest Du gerne bei Dir etablieren und welche existierende loswerden?||
-|25.05.2016|#Aufwachfrage: Ist das Wort "Gewohnheit" für Dich eher positiv oder negativ belegt?||
-|24.05.2016|#Aufwachfrage: Lieber ein Tag mit Lächeln oder einer mit Grinsen, wenn du nur eins von beiden haben kannst?||
-|23.05.2016|#Aufwachfrage: Wozu soll das überhaupt gut sein, sich selber immerzu Fragen zu stellen?||
-|20.05.2016|#Aufwachfrage: Weswegen hast Du Dich zuletzt im positiven Sinne als etwas ganz Besonderes gefühlt?||
-|17.05.2016|#Aufwachfrage: Worüber denkst Du nach, wenn Du im Stau stehst?||
-|16.05.2016|#Aufwachfrage: Was bedeutet “#schwelgen“ für Dich? Wie ist es, wenn Du schwelgst?||
-|13.05.2016|#Aufwachfrage: #Demut im Job - was bedeutet das für Dich?||
-|12.05.2016|#Aufwachfrage: Was von dem, was Du tust, ist relevant?||
-|11.05.2016|#Aufwachfrage: Welche Deiner Rituale helfen Dir beim Wachsen?||
-|10.05.2016|#Aufwachfrage: Wie würdest Du Deine ganz persönliche “gute alte Zeit” im Job beschreiben?||
-|09.05.2016|#Aufwachfrage: Wird Deine Welt heute Abend voraussichtlich ein kleines bisschen besser oder ein kleines bisschen schlechter sein?||
-|02.05.2016|#Aufwachfrage: Zu wie viel Prozent wahrscheinlich hältst Du es, dass Du heute meckern, maulen, kritisieren oder Dich beklagen wirst?||
-|30.04.2016|#Aufwachfrage: Was ist eigentlich Respekt für Dich?||
-|29.04.2016|#Einschlaffrage: Warst Du heute da? Woran hast Du das gemerkt? / #Aufwachfrage||
-|29.04.2016|#Aufwachfrage: Bist Du lieber anspruchsvoll oder zufrieden?||
-|27.04.2016|#Aufwachfrage: Was ist Dein persönliches  Rezept, um Dein Gemüt  widerstandsfähiger zu machen? #resilience||
-|26.04.2016|#Aufwachfrage: Wäre es gut, weniger zu tun anstatt immer noch mehr? https://t.co/sjD6v2KMbo||
-|25.04.2016|#Aufwachfrage: Was ist #Mut für Dich?||
-|22.04.2016|#Aufwachfrage: Warum schauen wir uns zur Unterhaltung Filme an, in denen Menschen getötet werden?||
-|20.04.2016|#Aufwachfrage: Woran merkst Du es, wenn Du wirklich wütend bist?||
-|14.04.2016|#Aufwachfrage: Welche Maske wirst Du heute tragen?||
-|08.04.2016|#Aufwachfrage: Wie war das, als Du Dich das letzte Mal getraut hast, öffentlich #albern zu sein?||
-|06.04.2016|#Aufwachfrage: Welche Deiner ganz persönlichen “Superpowers” wird von Dir oder von Deinem Umfeld sträflich selten genutzt?||
-|04.04.2016|#Aufwachfrage: Was ist Deine erste Erinnerung ans Berufsleben und wie fühlt die sich an?||
-|29.03.2016|#Aufwachfrage: Wie viele Vokabeln hast Du, um Deine Gefühle zu beschreiben? Wie viele Schimpfwörter hast Du?||
-|26.03.2016|#Aufwachfrage: Woran glaubst Du (Religion mal ausgenommen)?||
-|17.03.2016|#Aufwachfrage: Vor welcher Aufwachfrage hättest Du Angst?||
-|16.03.2016|#Aufwachfrage: Worauf bist Du heimlich stolz wie Bolle?||
-|15.03.2016|#Aufwachfrage: Ist Herzklopfen bei Dir eher mit positiven oder negativen Gefühlen verbunden?||
-|09.03.2016|#Aufwachfrage(n): Lohnt sich das alles eigentlich? Muss es sich eigentlich lohnen? Was heisst "lohnen" für Dich überhaupt?||
-|08.03.2016|#Aufwachfrage: Stehst Du eher FÜR eine Sache oder GEGEN eine Sache?||
-|29.02.2016|#Aufwachfrage: Wie bzw. woran merkst Du, dass Du gescheitert bist? #scheitern||
-|17.02.2016|#Aufwachfrage: Was wäre, wenn das alles nur ein Traum ist?||
-|12.02.2016|#Aufwachfrage: Weißt Du, wozu Du wirklich nütze bist?||
-|10.02.2016|#Aufwachfrage: Woran merkst du es, wenn Du eine Rolle spielst anstatt #authentisch zu sein?||
-|08.02.2016|#Aufwachfrage: Als welche #agile Dysfunktion würdest du dich an Fasching verkleiden, damit deinem Team das Lachen im Hals stecken bliebe?||
-|05.02.2016|#Aufwachfrage: Hast Du etwas, das auf Dein Gemüt eine ähnlich aktivierende Wirkung hat wie Kaffee auf einen verschlafenen Körper?||
-|03.02.2016|#Aufwachfrage: Macht es heute einen Unterschied, dass du da bist?||
-|27.01.2016|#Aufwachfrage: Wenn du an deinen gestrigen Tag denkst, welches Gefühl löst diese Erinnerung bei dir aus?||
-|26.01.2016|#Aufwachfrage: Würdest du dich spontan mögen, wenn du dich heute zufällig irgendwo kennenlernen würdest?||
-|25.01.2016|#Aufwachfrage: Wie wahrscheinlich ist es, dass Du heute einen Fremden anlächeln wirst? #Lächeln aus Höflichkeit alleine ist nicht gemeint.||
-|22.01.2016|Aufwachfrage:  Was sagt Dein Bauch, wenn du an den Tag denkst, der heute vor Dir liegt? Hör genau hin. #Aufwachfrage||
-|20.01.2016|#Aufwachfrage: Welchen Satz an #Wertschätzung müsstest du hören, um vor Freude einen Luftsprung zu machen? https://t.co/3RSzPQPrJf||
-|14.01.2016|Aufwachfrage: Was wäre, wenn Deine Arbeit niemand täte? #aufwachfrage||
-|17.12.2015|Aufwachfrage: Was macht Dich juchzen vor Lebensfreude? Wie lange musstest Du für die Antwort überlegen? #aufwachfrage||
-|09.12.2015|Aufwachfrage: Wie hast Du zuletzt die Welt verbessert? #aufwachfrage #weltverbessern||
-|04.12.2015|Aufwachfrage: Investierst du den Großteil Deiner Energie in das, was du am meisten magst? #aufwachfrage||
-|01.12.2015|Aufwachfrage: Hat man nur dann richtig gelebt, wenn man Spuren hinterlassen hat? #aufwachfrage https://t.co/iEzhfEVPiG||
+|23.12.2016|#Aufwachfrage: Wann bist du zuletzt ohne Anlass bewusst ganz ganz langsam gegangen (Smartphone-Starren zählt nicht)?|[Twitter URL](https://twitter.com/udowiegaertner/status/812198537740058624)|
+|22.12.2016|#Aufwachfrage: Was findest du großartig an dir?|[Twitter URL](https://twitter.com/udowiegaertner/status/811836251716419588)|
+|21.12.2016|#Aufwachfrage: Wie viele von 10 deiner Tage würdest du als mindestens "gut" einstufen?|[Twitter URL](https://twitter.com/udowiegaertner/status/811473805378015232)|
+|20.12.2016|#Aufwachfrage: Wie viele Sekunden #Schweigen hältst du bei Augenkontakt während eines Dialogs aus?|[Twitter URL](https://twitter.com/udowiegaertner/status/811111391788670976)|
+|19.12.2016|#Aufwachfrage: Hat dein gestriger Tag dich größer oder kleiner gemacht?|[Twitter URL](https://twitter.com/udowiegaertner/status/810749018619912192)|
+|15.12.2016|#Aufwachfrage: Warum schmückst du dich manchmal mit fremden Federn?|[Twitter URL](https://twitter.com/udowiegaertner/status/809299455526707200)|
+|14.12.2016|#Aufwachfrage: Welche drei Songs sind deine persönliche Essenz aus 2016 und warum?|[Twitter URL](https://twitter.com/udowiegaertner/status/808937160476868609)|
+|13.12.2016|#Aufwachfrage: Welchen Rat würdest du deinem eigenen ich von gestern 7:30 Uhr geben?|[Twitter URL](https://twitter.com/udowiegaertner/status/808574679531343872)|
+|12.12.2016|#Aufwachfrage: Was strengt dich über Gebühr an, obwohl es eigentlich nicht anstrengend sein sollte?|[Twitter URL](https://twitter.com/udowiegaertner/status/808212299525791744)|
+|09.12.2016|#Aufwachfrage: Was war das Wertvollste, das du diese Woche gelernt hast?|[Twitter URL](https://twitter.com/udowiegaertner/status/807125168975974400)|
+|08.12.2016|#Aufwachfrage: Wann hast du deinen Chef zuletzt konkret um Hilfe gebeten?|[Twitter URL]( https://twitter.com/udowiegaertner/status/806762759383695360)|
+|07.12.2016|#Aufwachfrage: Was braucht du am dringendsten von deinem Chef?|[Twitter URL]( https://twitter.com/udowiegaertner/status/806400350790025220)|
+|06.12.2016|#Aufwachfrage: Was "siehst" du, wenn du jetzt die Augen schließt!|[Twitter URL](https://twitter.com/udowiegaertner/status/806037992758505472)|
+|05.12.2016|#Aufwachfrage: Welcher #Sinneseindruck hat dich kürzlich überrascht?|[Twitter URL](https://twitter.com/udowiegaertner/status/805675643673411584)|
+|02.12.2016|#Aufwachfrage: In welchen Situationen sind dein Job und dein Privatleben perfekt im #Einklang?|[Twitter URL](https://twitter.com/udowiegaertner/status/804588512523800576)|
+|01.12.2016|#Aufwachfrage: Was gibt es anhand dieser #StoryCubes zu deinem aktuellen Befinden zu sagen (mind. 3 Würfel)? https://t.co/AZCb2ZrLSk|[Twitter URL](https://twitter.com/udowiegaertner/status/804226043389345793)|
+|30.11.2016|#Aufwachfrage: Welche Frage würdest du den Erwachsenen stellen, wenn du wieder ein 8-jähriges Kind wärst?|[Twitter URL](https://twitter.com/udowiegaertner/status/803863647374233600)|
+|29.11.2016|#Aufwachfrage: Wie würde dein Tag heute aussehen, wenn es der letzte eines 3-jährigen #Sabbatical wäre uns morgen der Job wieder begönne?|[Twitter URL](https://twitter.com/udowiegaertner/status/803501248196571136)|
+|28.11.2016|#Aufwachfrage: Unter welchen Umständen würdest du freudig ohne Gehalt arbeiten?|[Twitter URL](https://twitter.com/udowiegaertner/status/803138852072411136)|
+|25.11.2016|#Aufwachfrage: Warum hältst du dich freiwillig an #Regeln?|[Twitter URL](https://twitter.com/udowiegaertner/status/802051755487981568)|
+|24.11.2016|#Aufwachfrage: Warum brichst du #Regeln?|[Twitter URL](https://twitter.com/udowiegaertner/status/801689365495894016)|
+|22.11.2016|#Aufwachfrage: Was fällt dir spontan zum Thema #Regeln ein?|[Twitter URL](https://twitter.com/udowiegaertner/status/800964540888477697)|
+|21.11.2016|#Aufwachfrage: Was ist der Unterschied zwischen #Bescheidenheit und #Demut?|[Twitter URL](https://twitter.com/udowiegaertner/status/800602275240640513)|
+|18.11.2016|#Aufwachfrage: Wofür schämst du dich (Fremdschämen ausgenommen)?|[Twitter URL](https://twitter.com/udowiegaertner/status/799515022565273600)|
+|17.11.2016|#Aufwachfrage: Welches Lob hast du dir zuletzt selbst gegeben?|[Twitter URL](https://twitter.com/udowiegaertner/status/799152633894371328)|
+|16.11.2016|#Aufwachfrage: Hält man im Unternehmen mehr Schmerz oder Schwachsinn aus als privat? (by @svnwnk) / #manageagile|[Twitter URL](https://twitter.com/udowiegaertner/status/798790263514611713)|
+|15.11.2016|#Aufwachfrage: Was wäre der #Titelsong in der Verfilmung deines Lebens und warum gerade dieser Song?|[Twitter URL](https://twitter.com/udowiegaertner/status/798427818107555840)|
+|14.11.2016|#Aufwachfrage: Was würdest du gerne "great again" machen?|[Twitter URL](https://twitter.com/udowiegaertner/status/798065514748645376)|
+|11.11.2016|#WakeUpQuestion: As an #AgileCoach how would you coach @realDonaldTrump regarding #Agile Leadership?|[Twitter URL](https://twitter.com/udowiegaertner/status/796978326325891072)|
+|10.11.2016|#Aufwachfrage: Was schätzt du (ohne Ironie) an den USA?|[Twitter URL](https://twitter.com/udowiegaertner/status/796615903056134144)|
+|09.11.2016|#Aufwachfrage: Woraus ziehst du Hoffnung in trüben Zeiten?|[Twitter URL](https://twitter.com/udowiegaertner/status/796253553937580032)|
+|08.11.2016|#Aufwachfrage: Zu viel viel Prozent entsprichst du in einer durchschnittlichen Woche deinen eigenen Ansprüchen?|[Twitter URL](https://twitter.com/udowiegaertner/status/795891103690014720)|
+|07.11.2016|#Aufwachfrage: Wenn es Noise Cancellation Kopfhörer auch für Verhaltensweisen geben würde, welche würdest du ausblenden?|[Twitter URL](https://twitter.com/udowiegaertner/status/795528784061616128)|
+|04.11.2016|#Aufwachfrage: Woran merkst du am Abend, dass Dein Tag gut war?|[Twitter URL](https://twitter.com/udowiegaertner/status/794441553733357569)|
+|03.11.2016|#Aufwachfrage: Worüber führst du #Selbstgespräche?|[Twitter URL](https://twitter.com/udowiegaertner/status/794079226035077120)|
+|02.11.2016|#Aufwachfrage: Kann ein #Team eine #Seele haben?|[Twitter URL](https://twitter.com/udowiegaertner/status/793716774277681152)|
+|01.11.2016|#Aufwachfrage: Welchen Satz würdest du gerne mal wieder sagen?|[Twitter URL](https://twitter.com/udowiegaertner/status/793354427885387781)|
+|31.10.2016|#Aufwachfrage: Ist #Selbstlosigkeit naiv?|[Twitter URL](https://twitter.com/udowiegaertner/status/792992032704827392)|
+|28.10.2016|#Aufwachfrage: Welches deiner #Talente nutzt sich ab, je öfter du es benutzt?|[Twitter URL](https://twitter.com/udowiegaertner/status/791889864497258496)|
+|27.10.2016|#Aufwachfrage: Wie übt man sich in #Vergebung?|[Twitter URL](https://twitter.com/udowiegaertner/status/791527377209876482)|
+|26.10.2016|#Aufwachfrage: Welchen Satz würdest du gerne mal wieder hören?|[Twitter URL](https://twitter.com/udowiegaertner/status/791164980607479809)|
+|25.10.2016|#Aufwachfrage: Was macht #Angst mit dir?|[Twitter URL](https://twitter.com/udowiegaertner/status/790802671791898624)|
+|24.10.2016|#Aufwachfrage: Was ist #Würde für dich?|[Twitter URL](https://twitter.com/udowiegaertner/status/790440278817644545)|
+|21.10.2016|#Aufwachfrage: Womit unterbrichst du #Endlosschleifen in deinem Kopf?|[Twitter URL](https://twitter.com/udowiegaertner/status/789353033197117441)|
+|20.10.2016|#Aufwachfrage: Was ist für dich der Unterschied zwischen einem #Coach und einem #Mentor? / CC: @timothep|[Twitter URL](https://twitter.com/udowiegaertner/status/788990712130002944)|
+|19.10.2016|#Aufwachfrage: Woraus besteht dein ganz persönlicher #Ehrenkodex im Job?|[Twitter URL](https://twitter.com/udowiegaertner/status/788628330190962688)|
+|18.10.2016|#Aufwachfrage: In welcher Situation warst du kürzlich außerhalb deiner #Komfortzone?|[Twitter URL](https://twitter.com/udowiegaertner/status/788265861199040512)|
+|17.10.2016|#Aufwachfrage: Was wirst du heute verschenken?|[Twitter URL](https://twitter.com/udowiegaertner/status/787903475111845888)|
+|14.10.2016|#Aufwachfrage: Eher Vergangenheit, Gegenwart oder Zukunft (wenn du ganz ehrlich zu dir bist)?|[Twitter URL](https://twitter.com/udowiegaertner/status/786816326572519424)|
+|13.10.2016|#Aufwachfrage: In welchen Situationen siehst du (sinnbildlich) auf andere herab?|[Twitter URL](https://twitter.com/udowiegaertner/status/786453976392826880)|
+|12.10.2016|#Aufwachfrage: Wie oft lügst du an einem durchschnittlichen Tag?|[Twitter URL](https://twitter.com/udowiegaertner/status/786091572215607297)|
+|11.10.2016|#Aufwachfrage: Woran misst du dich?|[Twitter URL](https://twitter.com/udowiegaertner/status/785729333843398656)|
+|10.10.2016|#Aufwachfrage: Würdest du dich selber zum US-Prädidenten wählen wenn du zur Wahl stündest?|[Twitter URL](https://twitter.com/udowiegaertner/status/785366785050734592)|
+|07.10.2016|#Aufwachfrage: #TechnischeSchulden in Software kennen. Was sind hingegen #Kulturschulden in deiner Firma?|[Twitter URL](https://twitter.com/udowiegaertner/status/784279761950420992)|
+|06.10.2016|#Aufwachfrage: An welchem #Regressionsfehlern krankt eure #Firmenkultur?|[Twitter URL](https://twitter.com/udowiegaertner/status/783917206233030656)|
+|05.10.2016|#Aufwachfrage: Wie würdest du deine #Firmenkultur (positiv) hacken? #cultureHacking|[Twitter URL](https://twitter.com/udowiegaertner/status/783554905030160384)|
+|04.10.2016|#Aufwachfrage: Wie macht ihr #Refactoring von #Firmenkultur?|[Twitter URL](https://twitter.com/udowiegaertner/status/783192511154155520)|
+|03.10.2016|#Aufwachfrage: Warum reden wir öfter über #LegacyCode als über #LegacyCulture?|[Twitter URL](https://twitter.com/udowiegaertner/status/782830045177995264)|
+|30.09.2016|#Aufwachfrage: Wenn #Hochmut vor dem Fall kommt, was kommt dann eigentlich vor dem Hochmut?|[Twitter URL](https://twitter.com/udowiegaertner/status/781742884127137792)|
+|29.09.2016|#Aufwachfrage: Wann ist #Egoismus nicht egoistisch?|[Twitter URL](https://twitter.com/udowiegaertner/status/781380501068214272)|
+|28.09.2016|#Aufwachfrage: Welche eigentlich unbedeutende Kleinigkeit bringt dich zum Lächeln?|[Twitter URL]()|
+|27.09.2016|#Aufwachfrage: Welche eigentlich unbedeutende Kleinigkeit bringt dich zur Weißglut?|[Twitter URL]()|
+|26.09.2016|#Aufwachfrage: Was hast du letzte Woche erreicht/erlebt, das dich froh in diese neue Woche gehen lässt? (Thx @ArminSchubert f. d. Frage)|[Twitter URL]()|
+|23.09.2016|#Aufwachfrage: Was bedeutet Macht für dich?|[Twitter URL]()|
+|22.09.2016|#Aufwachfrage: Welche Dinge im Leben hast du reduziert?|[Twitter URL]()|
+|21.09.2016|#Aufwachfrage: Woran misst du deine eigene Loyalität?|[Twitter URL]()|
+|20.09.2016|#Aufwachfrage: Was ist das Wichtigste, das du von deinem #Mentor gelernt hast (wenn du einen hattest)?|[Twitter URL]()|
+|19.09.2016|#Aufwachfrage: Würdest du gerne gefunden werden?|[Twitter URL]()|
+|16.09.2016|#Aufwachfrage: Was muss passieren, bevor Du einen Rat annehmen kannst?|[Twitter URL]()|
+|15.09.2016|#Aufwachfrage: Wenn wir Marmeladenbrote wären - Wie fällt man beim Stürzen weniger oft auf die eigene Marmeladenseite?|[Twitter URL]()|
+|09.09.2016|#Aufwachfrage: Warum ist gerade heute ein besonderer Tag für dich?|[Twitter URL]()|
+|08.09.2016|#Aufwachfrage: Angenommen, die Welt wurde genau so erschaffen, wie es die #Bibel schreibt. Ist #Gott dabei #agil vorgegangen?|[Twitter URL]()|
+|07.09.2016|#Aufwachfrage: Was ist gut an #Traurigkeit?|[Twitter URL]()|
+|06.09.2016|#Aufwachfrage: Wie bringt du  Geist, Kreativität und Kommunikation auf Betriebstemperatur? https://t.co/z1qi2bLXLA|[Twitter URL]()|
+|05.09.2016|#Aufwachfrage: Was sind drei positive Situationen, die dir die letzten 3 Wochen passiert sind?|[Twitter URL]()|
+|04.09.2016|#Aufwachfrage: Wie lange dauert es, wenn Du nachtragend bist?|[Twitter URL]()|
+|12.08.2016|#Aufwachfrage: Wie ist es, wenn du lächelst, obwohl es schmerzt?|[Twitter URL]()|
+|11.08.2016|#Aufwachfrage: Wie funktioniert verbale Großzügigkeit?|[Twitter URL]()|
+|10.08.2016|#Aufwachfrage: Welchen Satz würdest du in deiner Pensionierungs-Abschiedsrede vor den Kollegen gerne aus tiefstem Herzen sagen können?|[Twitter URL]()|
+|09.08.2016|#Aufwachfrage: wenn du je ein Buch schreiben würdest, das im Titel den Zusatz "das Standardwerk" hat, wie sollte es heißen?|[Twitter URL]()|
+|08.08.2016|#Aufwachfrage: Wenn die letzten paar Monate in deinem Job eine Art Trainingslager für Olympia gewesen wären, für welche Sportart?|[Twitter URL]()|
+|05.08.2016|#Aufwachfrage: Woran denkst du beim Wort #Mitarbeitergespräch als erstes?|[Twitter URL]()|
+|04.08.2016|#Aufwachfrage: Welche Eigenschaften hätte die Person, die dich in deinem Job überflüssig machen würde?|[Twitter URL]()|
+|03.08.2016|#Aufwachfrage: Wie war das, als du zuletzt unmoralisch gehandelt hast?|[Twitter URL]()|
+|02.08.2016|#Aufwachfrage: Worauf hättest du gerne mehr Lust?|[Twitter URL]()|
+|01.08.2016|#Aufwachfrage: Was geht in dir vor, wenn du Rache übst?|[Twitter URL]()|
+|29.07.2016|#Aufwachfrage: Was macht dich heil?|[Twitter URL]()|
+|28.07.2016|#Aufwachfrage: Was macht dich kaputt?|[Twitter URL]()|
+|27.07.2016|#Aufwachfrage: Traust du dich trauern (außerhalb von Todesfällen)?|[Twitter URL]()|
+|26.07.2016|#Aufwachfrage: Wenn deine Arbeitsmenge mal unbewältigbar erscheint, ist es dann eigentlich zu wenig Butter oder zu viel Brot?|[Twitter URL]()|
+|25.07.2016|#Aufwachfrage: Wenn du ganz ehrlich zu dir bist, wonach trachtest du: Maximum, Minimum oder Optimum?|[Twitter URL]()|
+|22.07.2016|#Aufwachfrage: Woran erkenne ich, dass Du gerade offen bist?|[Twitter URL]()|
+|21.07.2016|#Aufwachfrage: Welchen Gedanken an die Arbeit kannst du nach Feierabend am schwersten abschütteln?|[Twitter URL]()|
+|20.07.2016|#Aufwachfrage: Wie viele Menschen kennen dich wirklich?|[Twitter URL]()|
+|19.07.2016|#Aufwachfrage: Worüber kannst du #schweigen?|[Twitter URL]()|
+|18.07.2016|#Aufwachfrage: Was ist dein Lieblingswort bzw -satz, wenn dir etwas fantastisch gut gelungen ist?|[Twitter URL]()|
+|15.07.2016|#Aufwachfrage: Was hast du häufiger: Selber verändern oder verändert werden?|[Twitter URL]()|
+|14.07.2016|#Aufwachfrage: Wie sieht #Flow aus?|[Twitter URL]()|
+|13.07.2016|#Aufwachfrage: Was ist die #Top5 Liste deiner persönlichen Süchte?|[Twitter URL]()|
+|12.07.2016|#Aufwachfrage: Wie gehst du mit #Scham um? Schämst du dich überhaupt?|[Twitter URL]()|
+|11.07.2016|#Aufwachfrage: Kämpfst du FÜR oder GEGEN Themen?|[Twitter URL]()|
+|08.07.2016|#Aufwachfrage: Wie wird man #Seelenforscher?|[Twitter URL]()|
+|07.07.2016|#Aufwachfrage: Was ist die älteste Erinnerung, die dir spontan einfällt?|[Twitter URL]()|
+|06.07.2016|#Aufwachfrage: Was macht dein Leben heute #lebenswert?|[Twitter URL]()|
+|05.07.2016|#Aufwachfrage: Wozu könnte ein Langzeit-Plan für's eigene Leben gut sein?|[Twitter URL]()|
+|04.07.2016|#Aufwachfrage: was würdest du tun, wenn du wüsstest, du kannst damit nicht scheitern? Danke für die Frage an j_franny.|[Twitter URL]()|
+|01.07.2016|#Aufwachfrage: Was ist dein Kern?|[Twitter URL]()|
+|30.06.2016|#Aufwachfrage: Worüber hast du dich vor einem Monat gefreut? (Erinnerung am besten ohne Kalender und Smartphone).|[Twitter URL]()|
+|29.06.2016|#Aufwachfrage: Wie geht das, ein Coach für sich selber zu sein?|[Twitter URL]()|
+|28.06.2016|#Aufwachfrage: Wie viele von max. 10 Eile-Punkten wird dein heutiger Tag wohl erreichen?|[Twitter URL]()|
+|27.06.2016|#Aufwachfrage: Wozu das alles?|[Twitter URL]()|
+|24.06.2016|#Aufwachfrage: Wie #frei bist du eigentlich?|[Twitter URL]()|
+|23.06.2016|#Aufwachfrage: Was ist deine prägnanteste Erinnerung an den gestrigen Tag?|[Twitter URL]()|
+|22.06.2016|#Aufwachfrage: Was hat dich stärker gemacht?|[Twitter URL]()|
+|21.06.2016|#Aufwachfrage: Welche Fehler machst du in Endlosschleife?|[Twitter URL]()|
+|20.06.2016|#Aufwachfrage: würdest du dich als Nachbarn haben wollen?|[Twitter URL]()|
+|17.06.2016|#Aufwachfrage: Wonach riecht für Dich #Zufriedenheit?|[Twitter URL]()|
+|13.06.2016|#Aufwachfrage: Wie übt man sich in Demut?|[Twitter URL]()|
+|10.06.2016|#Aufwachfrage: Wann war zuletzt Stille in deinem Kopf?|[Twitter URL]()|
+|09.06.2016|#Aufwachfrage: Was hält länger - Hass oder Zuneigung?|[Twitter URL]()|
+|08.06.2016|#Aufwachfrage: Muss sich ein Tag eigentlich lohnen?|[Twitter URL]()|
+|08.06.2016|#PreAufwachfrage: Wofür lohnt es sich, gleich aufzuwachen? (Die zeitlichen Widersprüche der Frage bitte ignorieren). #Aufwachfrage|[Twitter URL]()|
+|07.06.2016|#Aufwachfrage: Dein heutiger Tag - Komödie oder Tragödie?|[Twitter URL]()|
+|06.06.2016|#Aufwachfrage: Glaubst du dir?|[Twitter URL]()|
+|03.06.2016|#Aufwachfrage: Wie schwer ist dein Gemüt und wie wiegst du es?|[Twitter URL]()|
+|02.06.2016|#Aufwachfrage: Führst du dein eigenes Leben oder das eines anderen, der nur so heißt wie du?|[Twitter URL]()|
+|01.06.2016|#Aufwachfrage: Wirst Du heute Stress und Erschöpfung als Statussymbol vor Dir her tragen?|[Twitter URL]()|
+|31.05.2016|#Aufwachfrage: Was würdest Du mit dem heutigen Tag anstellen, wenn Du wüsstest, dass Du mind. 115 Jahre alt wirst?|[Twitter URL]()|
+|25.05.2016|#Aufwachfrage: Welche Gewohnheit würdest Du gerne bei Dir etablieren und welche existierende loswerden?|[Twitter URL]()|
+|25.05.2016|#Aufwachfrage: Ist das Wort "Gewohnheit" für Dich eher positiv oder negativ belegt?|[Twitter URL]()|
+|24.05.2016|#Aufwachfrage: Lieber ein Tag mit Lächeln oder einer mit Grinsen, wenn du nur eins von beiden haben kannst?|[Twitter URL]()|
+|23.05.2016|#Aufwachfrage: Wozu soll das überhaupt gut sein, sich selber immerzu Fragen zu stellen?|[Twitter URL]()|
+|20.05.2016|#Aufwachfrage: Weswegen hast Du Dich zuletzt im positiven Sinne als etwas ganz Besonderes gefühlt?|[Twitter URL]()|
+|17.05.2016|#Aufwachfrage: Worüber denkst Du nach, wenn Du im Stau stehst?|[Twitter URL]()|
+|16.05.2016|#Aufwachfrage: Was bedeutet “#schwelgen“ für Dich? Wie ist es, wenn Du schwelgst?|[Twitter URL]()|
+|13.05.2016|#Aufwachfrage: #Demut im Job - was bedeutet das für Dich?|[Twitter URL]()|
+|12.05.2016|#Aufwachfrage: Was von dem, was Du tust, ist relevant?|[Twitter URL]()|
+|11.05.2016|#Aufwachfrage: Welche Deiner Rituale helfen Dir beim Wachsen?|[Twitter URL]()|
+|10.05.2016|#Aufwachfrage: Wie würdest Du Deine ganz persönliche “gute alte Zeit” im Job beschreiben?|[Twitter URL]()|
+|09.05.2016|#Aufwachfrage: Wird Deine Welt heute Abend voraussichtlich ein kleines bisschen besser oder ein kleines bisschen schlechter sein?|[Twitter URL]()|
+|02.05.2016|#Aufwachfrage: Zu wie viel Prozent wahrscheinlich hältst Du es, dass Du heute meckern, maulen, kritisieren oder Dich beklagen wirst?|[Twitter URL]()|
+|30.04.2016|#Aufwachfrage: Was ist eigentlich Respekt für Dich?|[Twitter URL]()|
+|29.04.2016|#Einschlaffrage: Warst Du heute da? Woran hast Du das gemerkt? / #Aufwachfrage|[Twitter URL]()|
+|29.04.2016|#Aufwachfrage: Bist Du lieber anspruchsvoll oder zufrieden?|[Twitter URL]()|
+|27.04.2016|#Aufwachfrage: Was ist Dein persönliches  Rezept, um Dein Gemüt  widerstandsfähiger zu machen? #resilience|[Twitter URL]()|
+|26.04.2016|#Aufwachfrage: Wäre es gut, weniger zu tun anstatt immer noch mehr? https://t.co/sjD6v2KMbo|[Twitter URL]()|
+|25.04.2016|#Aufwachfrage: Was ist #Mut für Dich?|[Twitter URL]()|
+|22.04.2016|#Aufwachfrage: Warum schauen wir uns zur Unterhaltung Filme an, in denen Menschen getötet werden?|[Twitter URL]()|
+|20.04.2016|#Aufwachfrage: Woran merkst Du es, wenn Du wirklich wütend bist?|[Twitter URL]()|
+|14.04.2016|#Aufwachfrage: Welche Maske wirst Du heute tragen?|[Twitter URL]()|
+|08.04.2016|#Aufwachfrage: Wie war das, als Du Dich das letzte Mal getraut hast, öffentlich #albern zu sein?|[Twitter URL]()|
+|06.04.2016|#Aufwachfrage: Welche Deiner ganz persönlichen “Superpowers” wird von Dir oder von Deinem Umfeld sträflich selten genutzt?|[Twitter URL]()|
+|04.04.2016|#Aufwachfrage: Was ist Deine erste Erinnerung ans Berufsleben und wie fühlt die sich an?|[Twitter URL]()|
+|29.03.2016|#Aufwachfrage: Wie viele Vokabeln hast Du, um Deine Gefühle zu beschreiben? Wie viele Schimpfwörter hast Du?|[Twitter URL]()|
+|26.03.2016|#Aufwachfrage: Woran glaubst Du (Religion mal ausgenommen)?|[Twitter URL]()|
+|17.03.2016|#Aufwachfrage: Vor welcher Aufwachfrage hättest Du Angst?|[Twitter URL]()|
+|16.03.2016|#Aufwachfrage: Worauf bist Du heimlich stolz wie Bolle?|[Twitter URL]()|
+|15.03.2016|#Aufwachfrage: Ist Herzklopfen bei Dir eher mit positiven oder negativen Gefühlen verbunden?|[Twitter URL]()|
+|09.03.2016|#Aufwachfrage(n): Lohnt sich das alles eigentlich? Muss es sich eigentlich lohnen? Was heisst "lohnen" für Dich überhaupt?|[Twitter URL]()|
+|08.03.2016|#Aufwachfrage: Stehst Du eher FÜR eine Sache oder GEGEN eine Sache?|[Twitter URL]()|
+|29.02.2016|#Aufwachfrage: Wie bzw. woran merkst Du, dass Du gescheitert bist? #scheitern|[Twitter URL]()|
+|17.02.2016|#Aufwachfrage: Was wäre, wenn das alles nur ein Traum ist?|[Twitter URL]()|
+|12.02.2016|#Aufwachfrage: Weißt Du, wozu Du wirklich nütze bist?|[Twitter URL]()|
+|10.02.2016|#Aufwachfrage: Woran merkst du es, wenn Du eine Rolle spielst anstatt #authentisch zu sein?|[Twitter URL]()|
+|08.02.2016|#Aufwachfrage: Als welche #agile Dysfunktion würdest du dich an Fasching verkleiden, damit deinem Team das Lachen im Hals stecken bliebe?|[Twitter URL]()|
+|05.02.2016|#Aufwachfrage: Hast Du etwas, das auf Dein Gemüt eine ähnlich aktivierende Wirkung hat wie Kaffee auf einen verschlafenen Körper?|[Twitter URL]()|
+|03.02.2016|#Aufwachfrage: Macht es heute einen Unterschied, dass du da bist?|[Twitter URL]()|
+|27.01.2016|#Aufwachfrage: Wenn du an deinen gestrigen Tag denkst, welches Gefühl löst diese Erinnerung bei dir aus?|[Twitter URL]()|
+|26.01.2016|#Aufwachfrage: Würdest du dich spontan mögen, wenn du dich heute zufällig irgendwo kennenlernen würdest?|[Twitter URL]()|
+|25.01.2016|#Aufwachfrage: Wie wahrscheinlich ist es, dass Du heute einen Fremden anlächeln wirst? #Lächeln aus Höflichkeit alleine ist nicht gemeint.|[Twitter URL]()|
+|22.01.2016|Aufwachfrage:  Was sagt Dein Bauch, wenn du an den Tag denkst, der heute vor Dir liegt? Hör genau hin. #Aufwachfrage|[Twitter URL]()|
+|20.01.2016|#Aufwachfrage: Welchen Satz an #Wertschätzung müsstest du hören, um vor Freude einen Luftsprung zu machen? https://t.co/3RSzPQPrJf|[Twitter URL]()|
+|14.01.2016|Aufwachfrage: Was wäre, wenn Deine Arbeit niemand täte? #aufwachfrage|[Twitter URL]()|
+|17.12.2015|Aufwachfrage: Was macht Dich juchzen vor Lebensfreude? Wie lange musstest Du für die Antwort überlegen? #aufwachfrage|[Twitter URL]()|
+|09.12.2015|Aufwachfrage: Wie hast Du zuletzt die Welt verbessert? #aufwachfrage #weltverbessern|[Twitter URL]()|
+|04.12.2015|Aufwachfrage: Investierst du den Großteil Deiner Energie in das, was du am meisten magst? #aufwachfrage|[Twitter URL]()|
+|01.12.2015|Aufwachfrage: Hat man nur dann richtig gelebt, wenn man Spuren hinterlassen hat? #aufwachfrage https://t.co/iEzhfEVPiG|[Twitter URL]()|
