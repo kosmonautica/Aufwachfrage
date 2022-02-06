@@ -3,7 +3,7 @@
 ## Hintergrund
 Seit Dezember 2015 stellt [@UdoWiegaertner](https://twitter.com/udowiegaertner) fast jeden Werktagmorgen auf Twitter eine Frage unter dem Hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query).
 Aus den Fragen entsteht oft ein interessanter, vielschichtiger und fast immer sehr wertschätzender Austausch von Sichtweisen und Ideen unter den Twitter-Usern.<br/>
-Bislang (Stand 01.02.2022) sind mehr als 1100 Fragen zusammengekommen.
+Bislang (Stand 06.02.2022) sind mehr als 1300 Fragen zusammengekommen.
 
 ## Warum heißt das "Aufwachfrage"?
 Die Fragen entstehen in aller Regel kurz nach dem Aufwachen in der Phase am frühen Morgen, in der das Gehirn zwar schon wach ist aber noch nicht in den 100 TODOs des Arbeitstages feststeckt. Eine magische Zeitspanne. Der Tweet geht deshalb auch immer früh am Morgen raus.
