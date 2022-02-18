@@ -27,6 +27,15 @@ Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
 
 |Datum|Aufwachfrage|Thread auf Twitter|
 |---|---|---|
+|17.02.2022|#Aufwachfrage: Warum befolgst du ein #Gesetz auch dann, wenn es niemand sieht und du das Gesetz für unsinnig hältst?|[Twitter](http://twitter.com/udowiegaertner/statuses/1494201924199100416)|
+|16.02.2022|#Aufwachfrage: Überforderst du dich bewusst?|[Twitter](http://twitter.com/udowiegaertner/statuses/1493842581926690818)|
+|15.02.2022|#Aufwachfrage: Können Firmen (und damit die Menschen darin) ganz grundsätzlich und fundamental die Art ändern, wie sie arbeiten?|[Twitter](http://twitter.com/udowiegaertner/statuses/1493460971427450884)|
+|14.02.2022|#Aufwachfrage: Denkst du nach, bevor du auf die Frage "Wie geht es dir?" antwortest?|[Twitter](http://twitter.com/udowiegaertner/statuses/1493116694671380483)|
+|11.02.2022|#Aufwachfrage: Wie viele Menschen müsstest du eigentlich noch um #Verzeihung bitten, tust es aber (noch) nicht?|[Twitter](http://twitter.com/udowiegaertner/statuses/1492030674437554176)|
+|10.02.2022|#Aufwachfrage: Welches Problem hast du erfolgreich ausgesessen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1491668288308498432)|
+|09.02.2022|#Aufwachfrage: Sagst du üblicherweise zu deinen #Ideen, die du NICHT verwirklichst, bewusst "Nein" oder versanden die einfach ungestartet?|[Twitter](http://twitter.com/udowiegaertner/statuses/1491307950077583364)|
+|08.02.2022|#Aufwachfrage: Was sind Indizien, dass du dein vorhandenes (oder vermeintliches) Wissen dazu benutzt, dich im Dialog schlauer oder kompetenter zu fühlen als dein Gegenüber?|[Twitter](http://twitter.com/udowiegaertner/statuses/1490943505358802944)|
+|07.02.2022|#Aufwachfrage: Wie wichtig ist dir ein #HappyEnd bei den vielen Episoden deines Alltags?|[Twitter](http://twitter.com/udowiegaertner/statuses/1490579958674214912)|
 |04.02.2022|#Aufwachfrage: Sind #Pessimist*innen eigentlich unglücklicher als #Optimist*innen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1489493958141034497)|
 |03.02.2022|#Aufwachfrage: Welches #Schulfach würdest du in der #Grundschule noch einführen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1489131661660934144)|
 |02.02.2022|#Aufwachfrage: Was fühlt sich für dich leicht und nach Spaß an, während es viele andere Menschen mutmaßlich als harte Arbeit empfinden?<br />(Inspiriert durch das Buch #AtomicHabits)|[Twitter](http://twitter.com/udowiegaertner/statuses/1488771183625523201)|
