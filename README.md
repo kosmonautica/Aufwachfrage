@@ -27,6 +27,7 @@ Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
 
 |Datum|Aufwachfrage|Thread auf Twitter|
 |---|---|---|
+|18.02.2022|#Aufwachfrage: Wie stehst du zur Verwendung von Abk. im Unternehmen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1494567441808216102)|
 |17.02.2022|#Aufwachfrage: Warum befolgst du ein #Gesetz auch dann, wenn es niemand sieht und du das Gesetz für unsinnig hältst?|[Twitter](http://twitter.com/udowiegaertner/statuses/1494201924199100416)|
 |16.02.2022|#Aufwachfrage: Überforderst du dich bewusst?|[Twitter](http://twitter.com/udowiegaertner/statuses/1493842581926690818)|
 |15.02.2022|#Aufwachfrage: Können Firmen (und damit die Menschen darin) ganz grundsätzlich und fundamental die Art ändern, wie sie arbeiten?|[Twitter](http://twitter.com/udowiegaertner/statuses/1493460971427450884)|
