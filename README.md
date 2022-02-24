@@ -27,6 +27,10 @@ Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
 
 |Datum|Aufwachfrage|Thread auf Twitter|
 |---|---|---|
+|24.02.2022|#Aufwachfrage: Welchen Satz würdest du dem alten Song "Everybody's Free (To Wear Sunscreen)" von @bazluhrmann aus deiner eigenen #Lebenserfahrung hinzufügen? (Song mit Lyrics: http://buff.ly/3sXxTF8)|[Twitter](http://twitter.com/udowiegaertner/statuses/1496754200977756163)|
+|23.02.2022|#Aufwachfrage: Was in deinem Job erfreut dein ästhetisches Empfinden?|[Twitter](http://twitter.com/udowiegaertner/statuses/1496379311561060352)|
+|22.02.2022|#Aufwachfrage: Welche Gründe sprechen für ein #EnterpriseSocialNetwork (z. B. Yammer o. a.) im Unternehmen, wenn @MicrosoftTeams + Confluence schon da sind? #ESN<br />CC @SimonDueckert, @LeonidLezner, @tlorenz77|[Twitter](http://twitter.com/udowiegaertner/statuses/1496017036711010304)|
+|21.02.2022|#Aufwachfrage: Wie sehr willst du gewinnen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1495654521816682499)|
 |18.02.2022|#Aufwachfrage: Wie stehst du zur Verwendung von Abk. im Unternehmen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1494567441808216102)|
 |17.02.2022|#Aufwachfrage: Warum befolgst du ein #Gesetz auch dann, wenn es niemand sieht und du das Gesetz für unsinnig hältst?|[Twitter](http://twitter.com/udowiegaertner/statuses/1494201924199100416)|
 |16.02.2022|#Aufwachfrage: Überforderst du dich bewusst?|[Twitter](http://twitter.com/udowiegaertner/statuses/1493842581926690818)|
