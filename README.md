@@ -27,6 +27,10 @@ Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
 
 |Datum|Aufwachfrage|Thread auf Twitter|
 |---|---|---|
+|01.03.2022|#Aufwachfrage: Inwieweit hat die letzte Woche deine Weltsicht verändert?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498540572373655557)|
+|28.02.2022|#Aufwachfrage: Warum schaffen es immer wieder einzelne Männer, so viel Einfluss zu bekommen, um ganze Kriege starten zu können?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498201648220549120)|
+|28.02.2022|#Aufwachfrage: Warum schaffen es immer wieder einzelne Männer, so viel Einfluss zu bekommen, um ganze Kriege starten zu können?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498201648220549120)|
+|25.02.2022|#Aufwachfrage: Was hilft gegen #Krieg?|[Twitter](http://twitter.com/udowiegaertner/statuses/1497095683077292054)|
 |24.02.2022|#Aufwachfrage: Welchen Satz würdest du dem alten Song "Everybody's Free (To Wear Sunscreen)" von @bazluhrmann aus deiner eigenen #Lebenserfahrung hinzufügen? (Song mit Lyrics: http://buff.ly/3sXxTF8)|[Twitter](http://twitter.com/udowiegaertner/statuses/1496754200977756163)|
 |23.02.2022|#Aufwachfrage: Was in deinem Job erfreut dein ästhetisches Empfinden?|[Twitter](http://twitter.com/udowiegaertner/statuses/1496379311561060352)|
 |22.02.2022|#Aufwachfrage: Welche Gründe sprechen für ein #EnterpriseSocialNetwork (z. B. Yammer o. a.) im Unternehmen, wenn @MicrosoftTeams + Confluence schon da sind? #ESN<br />CC @SimonDueckert, @LeonidLezner, @tlorenz77|[Twitter](http://twitter.com/udowiegaertner/statuses/1496017036711010304)|
