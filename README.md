@@ -29,7 +29,6 @@ Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
 |---|---|---|
 |10.03.2022|#Aufwachfrage: Bei aller Offenheit für #Veränderung, was soll sich bitte NICHT ändern?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501815194149871617)|
 |09.03.2022|#Aufwachfrage: Was können #Führungskräfte von Wladimir #Selenski lernen? (Disclaimer: Das soll ausdrücklich NICHT Krieg und Leid verharmlosen.)|[Twitter](http://twitter.com/udowiegaertner/statuses/1501452874651426816)|"
-|09.03.2022|#Aufwachfrage: Was können #Führungskräfte von Wladimir 
 |08.03.2022|#Aufwachfrage: An wie vielen von zehn durchschnittlichen Tagen hast du ein schlechtes Gewissen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501090420910137344)|
 |07.03.2022|#Aufwachfrage: Wofür wärst du gern berüchtigt?|[Twitter](http://twitter.com/udowiegaertner/statuses/1500721061293404162)|
 |04.03.2022|#Aufwachfrage: Von welchem Typus Mensch lernst du? (Abgesehen von der Antwort "von allen".)|[Twitter](http://twitter.com/udowiegaertner/statuses/1499640497723383809)|"
