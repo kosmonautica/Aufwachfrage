@@ -29,7 +29,7 @@ Feedback und Ideen sehr gerne via Twitter an [@UdoWiegaertner](https://twitter.c
 |10.03.2022|#Aufwachfrage: Bei aller Offenheit für #Veränderung, was soll sich bitte NICHT ändern?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501815194149871617)|
 |08.03.2022|#Aufwachfrage: An wie vielen von zehn durchschnittlichen Tagen hast du ein schlechtes Gewissen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501090420910137344)|
 |07.03.2022|#Aufwachfrage: Wofür wärst du gern berüchtigt?|[Twitter](http://twitter.com/udowiegaertner/statuses/1500721061293404162)|
-|04.03.2022|#Aufwachfrage: Von welchem Typus Mensch lernst du? (Abgesehen von der Antwort "von allen".)|[Twitter](http://twitter.com/udowiegaertner/statuses/1499640497723383809)|"
+|04.03.2022|#Aufwachfrage: Von welchem Typus Mensch lernst du? (Abgesehen von der Antwort "von allen".)|[Twitter](http://twitter.com/udowiegaertner/statuses/1499640497723383809)|
 |03.03.2022|#Aufwachfrage: Kuratierst bzw. beschränkst du in dieser Zeit des Krieges deinen eigenen #Medienkonsum?|[Twitter](http://twitter.com/udowiegaertner/statuses/1499278481632415744)|
 |02.03.2022|#Aufwachfrage: Tust du der Menschheit gut (deiner eigenen Einschätzung nach)?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498924047471726592)|
 |01.03.2022|#Aufwachfrage: Inwieweit hat die letzte Woche deine Weltsicht verändert?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498540572373655557)|
