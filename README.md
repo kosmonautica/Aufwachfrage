@@ -1,12 +1,13 @@
 # Das Archiv der #Aufwachfrage
 
 ## Hintergrund
-Seit Dezember 2015 stellt [@UdoWiegaertner](https://twitter.com/udowiegaertner) fast jeden Werktagmorgen auf Twitter eine Frage unter dem Hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query).
-Aus den Fragen entsteht oft ein interessanter, vielschichtiger und fast immer sehr wertschätzender Austausch von Sichtweisen und Ideen unter den Twitter-Usern.<br />
-Bislang (Stand 06.02.2022) sind mehr als 1300 Fragen zusammengekommen.
+Von Dezember 2015 bis März 2022 stellte [@UdoWiegaertner](https://twitter.com/udowiegaertner) fast jeden Werktagmorgen auf Twitter eine Frage unter dem Hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query).
+Aus den Fragen entstand oft ein interessanter, vielschichtiger und fast immer sehr wertschätzender Austausch von Sichtweisen und Ideen unter den Twitter-Usern.<br />
+Es sind über die Jahre mehr als 1300 Aufwachfragen zusammengekommen.
+Im März 2022 hat Udo vorerst aufgehört, Aufwachfragen zu stellen, da ein paar der Diskussionen auf Twitter ihm nicht gut taten. Die entsprechenden Aufwachfragen tauchen deshalb auch nicht im Archiv auf.
 
 ## Warum heißt das "Aufwachfrage"?
-Die Fragen entstehen in aller Regel kurz nach dem Aufwachen in der Phase am frühen Morgen, in der das Gehirn zwar schon wach ist aber noch nicht in den 100 TODOs des Arbeitstages feststeckt. Eine magische Zeitspanne. Der Tweet geht deshalb auch immer früh am Morgen raus.
+Die Fragen entstanden in aller Regel kurz nach dem Aufwachen in der Phase am frühen Morgen, in der das Gehirn zwar schon wach ist aber noch nicht in den 100 TODOs des Arbeitstages feststeckt. Eine magische Zeitspanne. Der Tweet ging deshalb auch immer früh am Morgen raus.
 "Aufwachfrage" ist nicht als ein "wacht endlich auf, ihr Schlafschafe" zu verstehen.
 
 ## Zweck dieser Seite
@@ -22,20 +23,16 @@ Feedback und Ideen sehr gerne via Twitter an [@UdoWiegaertner](https://twitter.c
 
 
 ## Archiv aller Aufwachfragen
-Die Tabelle wird in unregelmäßigen Abständen aktualisiert.
-
 
 |Datum|Aufwachfrage|Thread auf Twitter|
 |---|---|---|
 |10.03.2022|#Aufwachfrage: Bei aller Offenheit für #Veränderung, was soll sich bitte NICHT ändern?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501815194149871617)|
-|09.03.2022|#Aufwachfrage: Was können #Führungskräfte von Wladimir #Selenski lernen? (Disclaimer: Das soll ausdrücklich NICHT Krieg und Leid verharmlosen.)|[Twitter](http://twitter.com/udowiegaertner/statuses/1501452874651426816)|"
 |08.03.2022|#Aufwachfrage: An wie vielen von zehn durchschnittlichen Tagen hast du ein schlechtes Gewissen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501090420910137344)|
 |07.03.2022|#Aufwachfrage: Wofür wärst du gern berüchtigt?|[Twitter](http://twitter.com/udowiegaertner/statuses/1500721061293404162)|
 |04.03.2022|#Aufwachfrage: Von welchem Typus Mensch lernst du? (Abgesehen von der Antwort "von allen".)|[Twitter](http://twitter.com/udowiegaertner/statuses/1499640497723383809)|"
 |03.03.2022|#Aufwachfrage: Kuratierst bzw. beschränkst du in dieser Zeit des Krieges deinen eigenen #Medienkonsum?|[Twitter](http://twitter.com/udowiegaertner/statuses/1499278481632415744)|
 |02.03.2022|#Aufwachfrage: Tust du der Menschheit gut (deiner eigenen Einschätzung nach)?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498924047471726592)|
 |01.03.2022|#Aufwachfrage: Inwieweit hat die letzte Woche deine Weltsicht verändert?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498540572373655557)|
-|28.02.2022|#Aufwachfrage: Warum schaffen es immer wieder einzelne Männer, so viel Einfluss zu bekommen, um ganze Kriege starten zu können?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498201648220549120)|
 |28.02.2022|#Aufwachfrage: Warum schaffen es immer wieder einzelne Männer, so viel Einfluss zu bekommen, um ganze Kriege starten zu können?|[Twitter](http://twitter.com/udowiegaertner/statuses/1498201648220549120)|
 |25.02.2022|#Aufwachfrage: Was hilft gegen #Krieg?|[Twitter](http://twitter.com/udowiegaertner/statuses/1497095683077292054)|
 |24.02.2022|#Aufwachfrage: Welchen Satz würdest du dem alten Song "Everybody's Free (To Wear Sunscreen)" von @bazluhrmann aus deiner eigenen #Lebenserfahrung hinzufügen? (Song mit Lyrics: http://buff.ly/3sXxTF8)|[Twitter](http://twitter.com/udowiegaertner/statuses/1496754200977756163)|
