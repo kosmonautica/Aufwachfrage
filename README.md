@@ -24,8 +24,9 @@ Feedback und Ideen sehr gerne via Twitter an [@UdoWiegaertner](https://twitter.c
 
 ## Archiv aller Aufwachfragen
 
-|Datum|Aufwachfrage|Thread auf Twitter|
+|Datum|Aufwachfrage|Thread auf Twitter/LinkedIn|
 |---|---|---|
+|12.09.2024|#Aufwachfrage: How many people really really get you?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7239894407833874432-SeWE?utm_source=share&utm_medium=member_desktop)|
 |10.03.2022|#Aufwachfrage: Bei aller Offenheit für #Veränderung, was soll sich bitte NICHT ändern?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501815194149871617)|
 |08.03.2022|#Aufwachfrage: An wie vielen von zehn durchschnittlichen Tagen hast du ein schlechtes Gewissen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501090420910137344)|
 |07.03.2022|#Aufwachfrage: Wofür wärst du gern berüchtigt?|[Twitter](http://twitter.com/udowiegaertner/statuses/1500721061293404162)|
