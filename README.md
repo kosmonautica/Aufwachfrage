@@ -19,7 +19,7 @@ Die Fragen sind selbstverständlich frei zur Verwendung. Udo freut sich, wenn si
 Die Fragensammlung als Ganzes in Verbindung mit dem Begriff #Aufwachfrage steht unter Creative Commons Lizenz (BY NC SA). Das bedeutet, Bearbeitungen sind erlaubt (und gerne gesehen), solange sie unter den gleichen Bedinungen weitergeben werden und der Autor genannt wird. Eine kommerzielle Nutzung des #Aufwachfrage Archivs ist nicht erlaubt.
 
 ## Feedback
-Feedback und Ideen sehr gerne via Twitter an [@UdoWiegaertner](https://twitter.com/udowiegaertner).
+Feedback und Ideen sehr gerne an Udo via [LinkedIn](https://www.linkedin.com/in/udowiegaertner/).
 
 
 ## Archiv aller Aufwachfragen
