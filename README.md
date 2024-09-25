@@ -26,6 +26,15 @@ Feedback und Ideen sehr gerne an Udo via [LinkedIn](https://www.linkedin.com/in/
 
 |Datum|Aufwachfrage|Thread auf Twitter/LinkedIn|
 |---|---|---|
+|26.09.2024|#Aufwachfrage: When was the last time YOU mentored your mentor?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7244591068468375552-BWn0?utm_source=share&utm_medium=member_desktop)|
+|25.09.2024|#Aufwachfrage: How do you find out how a person is actually doing?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7244214040455974912-VenP?utm_source=share&utm_medium=member_desktop)|
+|24.09.2024|#Aufwachfrage: What is your preferred hiking position during a group hike?
+What is your preferred "hiking" position during a long business project?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7243865529537429505-r6Mt?utm_source=share&utm_medium=member_desktop)|
+|20.09.2024|#Aufwachfrage: How often on a typical day do you think about your company's profit, and why?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7242772345361154048-D6hi?utm_source=share&utm_medium=member_desktop)|
+|19.09.2024|#Aufwachfrage: What hashtag#rituals (not just habits) do you practice in your job context?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-rituals-activity-7242401820420038656-A2dT?utm_source=share&utm_medium=member_desktop)|
+|18.09.2024|#Aufwachfrage: How good are you at accepting your strengths?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7242046749094096896-zHda?utm_source=share&utm_medium=member_desktop)|
+|17.09.2024|#Aufwachfrage: What didn't change since your childhood?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7241691237504679937-nEEz?utm_source=share&utm_medium=member_desktop)|
+|16.09.2024|#Aufwachfrage: What of your very own #legacy from your professional life can you already grasp?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-legacy-activity-7241305080535072768-HQEz?utm_source=share&utm_medium=member_desktop)|
 |12.09.2024|#Aufwachfrage: How many people really really get you?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7239894407833874432-SeWE?utm_source=share&utm_medium=member_desktop)|
 |10.03.2022|#Aufwachfrage: Bei aller Offenheit für #Veränderung, was soll sich bitte NICHT ändern?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501815194149871617)|
 |08.03.2022|#Aufwachfrage: An wie vielen von zehn durchschnittlichen Tagen hast du ein schlechtes Gewissen?|[Twitter](http://twitter.com/udowiegaertner/statuses/1501090420910137344)|
