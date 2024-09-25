@@ -1,35 +1,73 @@
-# Das Archiv der #Aufwachfrage
+# Das Archiv der #Aufwachfrage / The archive of #Aufwachfrage
 
-## Hintergrund
+ENGLISH VERSION BELOW
+
+## GERMAN 
+### Was sind #Aufwachfragen?
+Das sind Fragen, die zum Nachdenken und zum Reflektieren einladen.
+
+### Hintergrund
 Von Dezember 2015 bis März 2022 stellte [@UdoWiegaertner](https://twitter.com/udowiegaertner) fast jeden Werktagmorgen auf Twitter eine Frage unter dem Hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query).
 Aus den Fragen entstand oft ein interessanter, vielschichtiger und fast immer sehr wertschätzender Austausch von Sichtweisen und Ideen unter den Twitter-Usern.<br />
 Es sind über die Jahre mehr als 1300 Aufwachfragen zusammengekommen.
-Im März 2022 hat Udo vorerst aufgehört, Aufwachfragen zu stellen, da ein paar der Diskussionen auf Twitter ihm nicht gut taten. Die entsprechenden Aufwachfragen tauchen deshalb auch nicht im Archiv auf.
+Im März 2022 hatte Udo vorerst aufgehört, Aufwachfragen zu stellen, da ein paar der Diskussionen auf Twitter ihm nicht gut taten. Die entsprechenden Aufwachfragen tauchen deshalb auch nicht im Archiv auf.
+**Seit September 2025 gibt es nun wieder täglich eine #Aufwachfrage. Udo hat von Twitter/X auf LinkedIn gewechsel und die Sprache der Frage ist jetzt Englisch.**
 
-## Warum heißt das "Aufwachfrage"?
-Die Fragen entstanden in aller Regel kurz nach dem Aufwachen in der Phase am frühen Morgen, in der das Gehirn zwar schon wach ist aber noch nicht in den 100 TODOs des Arbeitstages feststeckt. Eine magische Zeitspanne. Der Tweet ging deshalb auch immer früh am Morgen raus.
+### Warum heißt das "Aufwachfrage"?
+Die Fragen entstehen in aller Regel kurz nach dem Aufwachen in der Phase am frühen Morgen, in der das Gehirn zwar schon wach ist aber noch nicht in den 100 TODOs des Arbeitstages feststeckt. Eine magische Zeitspanne. Die #Aufwachfrage wird deshalb immer früh am Morgen veröffentlicht.
 "Aufwachfrage" ist nicht als ein "wacht endlich auf, ihr Schlafschafe" zu verstehen.
 
-## Zweck dieser Seite
-Diese Seite sammelt die #Aufwachfragen und hilft zum einen beim schnellen Zugriff auf die zugehörigen Gesprächs-Threads auf Twitter.
+### Zweck dieser Seite
+Diese Seite sammelt die #Aufwachfragen und hilft zum einen beim schnellen Zugriff auf die zugehörigen Gesprächs-Threads auf X/LinkedIn.
 Zum anderen lädt die Seite zum Stöbern in den Fragen ein.
 
-## Weiterverwendung des #Aufwachfrage Archivs
+### Weiterverwendung des #Aufwachfrage Archivs
 Die Fragen sind selbstverständlich frei zur Verwendung. Udo freut sich, wenn sie dir helfen. Er freut sich noch mehr, wenn du ihn bzw. die #Aufwachfrage als deine Inspirationsquelle nennst.<br />
 Die Fragensammlung als Ganzes in Verbindung mit dem Begriff #Aufwachfrage steht unter Creative Commons Lizenz (BY NC SA). Das bedeutet, Bearbeitungen sind erlaubt (und gerne gesehen), solange sie unter den gleichen Bedinungen weitergeben werden und der Autor genannt wird. Eine kommerzielle Nutzung des #Aufwachfrage Archivs ist nicht erlaubt.
 
-## Feedback
+### Feedback
 Feedback und Ideen sehr gerne an Udo via [LinkedIn](https://www.linkedin.com/in/udowiegaertner/).
 
+---
 
-## Archiv aller Aufwachfragen
+## ENGLISH
 
-|Datum|Aufwachfrage|Thread auf Twitter/LinkedIn|
+### What is #Aufwachfrage?
+A #Aufwachfrage is a question that invites reflection and thought.
+
+### Background
+From December 2015 to March 2022, [@UdoWiegaertner](https://twitter.com/udowiegaertner) posted a question almost every weekday morning on Twitter using the hashtag [#Aufwachfrage](https://twitter.com/search?q=%23aufwachfrage&src=typed_query).
+These questions often sparked an interesting, multifaceted, and almost always highly respectful exchange of perspectives and ideas among Twitter users.<br />
+Over the years, more than 1300 #Aufwachfrage were accumulated.
+In March 2022, Udo decided to stop posting #Aufwachfrage for a while, as some of the discussions on Twitter had negatively impacted him. Therefore, those specific #Aufwachfrage are not included in the archive.
+**Since September 2025, a daily #Aufwachfrage is alive again. Udo has switched from Twitter/X to LinkedIn, and the questions are now in English.**
+
+### Why is it called "Aufwachfrage"?
+The questions are typically created shortly after waking up during the early morning phase when the brain is awake but not yet entangled in the 100 TODOs of the workday. A magical time window. That's why the #Aufwachfrage is always published early in the morning.
+"Aufwachfrage" is not meant as a "wake up, you sleepwalkers."
+
+### Purpose of this page
+This page collects the #Aufwachfrage and helps with quick access to the associated discussion threads on X/LinkedIn.
+It also invites users to browse through the questions.
+
+### Further use of the #Aufwachfrage archive
+The questions are, of course, free to use. Udo is happy if they help you. He's even happier if you mention him or the #Aufwachfrage as your source of inspiration.<br />
+The collection of questions as a whole, in connection with the term #Aufwachfrage, is under a Creative Commons license (BY NC SA). This means modifications are allowed (and encouraged) as long as they are shared under the same conditions and the author is credited. Commercial use of the #Aufwachfrage archive is not permitted.
+
+### Feedback
+Feedback and ideas are very welcome to Udo via [LinkedIn](https://www.linkedin.com/in/udowiegaertner/).
+
+
+---
+
+
+## Archiv aller Aufwachfragen / The all-time archive of all Aufwachfragen
+
+|Datum|Aufwachfrage|Thread on X/LinkedIn|
 |---|---|---|
 |26.09.2024|#Aufwachfrage: When was the last time YOU mentored your mentor?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7244591068468375552-BWn0?utm_source=share&utm_medium=member_desktop)|
 |25.09.2024|#Aufwachfrage: How do you find out how a person is actually doing?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7244214040455974912-VenP?utm_source=share&utm_medium=member_desktop)|
-|24.09.2024|#Aufwachfrage: What is your preferred hiking position during a group hike?
-What is your preferred "hiking" position during a long business project?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7243865529537429505-r6Mt?utm_source=share&utm_medium=member_desktop)|
+|24.09.2024|#Aufwachfrage: What is your preferred hiking position during a group hike? What is your preferred "hiking" position during a long business project?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7243865529537429505-r6Mt?utm_source=share&utm_medium=member_desktop)|
 |20.09.2024|#Aufwachfrage: How often on a typical day do you think about your company's profit, and why?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7242772345361154048-D6hi?utm_source=share&utm_medium=member_desktop)|
 |19.09.2024|#Aufwachfrage: What hashtag#rituals (not just habits) do you practice in your job context?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-rituals-activity-7242401820420038656-A2dT?utm_source=share&utm_medium=member_desktop)|
 |18.09.2024|#Aufwachfrage: How good are you at accepting your strengths?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7242046749094096896-zHda?utm_source=share&utm_medium=member_desktop)|
