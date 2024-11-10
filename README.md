@@ -11,7 +11,7 @@ Von Dezember 2015 bis März 2022 stellte [@UdoWiegaertner](https://twitter.com/u
 Aus den Fragen entstand oft ein interessanter, vielschichtiger und fast immer sehr wertschätzender Austausch von Sichtweisen und Ideen unter den Twitter-Usern.<br />
 Es sind über die Jahre mehr als 1300 Aufwachfragen zusammengekommen.
 Im März 2022 hatte Udo vorerst aufgehört, Aufwachfragen zu stellen, da ein paar der Diskussionen auf Twitter ihm nicht gut taten. Die entsprechenden Aufwachfragen tauchen deshalb auch nicht im Archiv auf.
-**Seit September 2025 gibt es nun wieder täglich eine #Aufwachfrage. Udo hat von Twitter/X auf LinkedIn gewechsel und die Sprache der Frage ist jetzt Englisch.**
+**Seit September 2024 gibt es nun wieder täglich eine #Aufwachfrage. Udo hat von Twitter/X auf LinkedIn gewechsel und die Sprache der Frage ist jetzt Englisch.**
 
 ### Warum heißt das "Aufwachfrage"?
 Die Fragen entstehen in aller Regel kurz nach dem Aufwachen in der Phase am frühen Morgen, in der das Gehirn zwar schon wach ist aber noch nicht in den 100 TODOs des Arbeitstages feststeckt. Eine magische Zeitspanne. Die #Aufwachfrage wird deshalb immer früh am Morgen veröffentlicht.
@@ -40,7 +40,7 @@ From December 2015 to March 2022, [@UdoWiegaertner](https://twitter.com/udowiega
 These questions often sparked an interesting, multifaceted, and almost always highly respectful exchange of perspectives and ideas among Twitter users.<br />
 Over the years, more than 1300 #Aufwachfrage were accumulated.
 In March 2022, Udo decided to stop posting #Aufwachfrage for a while, as some of the discussions on Twitter had negatively impacted him. Therefore, those specific #Aufwachfrage are not included in the archive.
-**Since September 2025, a daily #Aufwachfrage is alive again. Udo has switched from Twitter/X to LinkedIn, and the questions are now in English.**
+**Since September 2024, a daily #Aufwachfrage is alive again. Udo has switched from Twitter/X to LinkedIn, and the questions are now in English.**
 
 ### Why is it called "Aufwachfrage"?
 The questions are typically created shortly after waking up during the early morning phase when the brain is awake but not yet entangled in the 100 TODOs of the workday. A magical time window. That's why the #Aufwachfrage is always published early in the morning.
@@ -65,6 +65,9 @@ Feedback and ideas are very welcome to Udo via [LinkedIn](https://www.linkedin.c
 
 |Datum|Aufwachfrage|Thread on X/LinkedIn|
 |---|---|---|
+|08.11.2024|#Aufwachfrage: How often do you usually hang out with colleagues in your private life?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7260570582671405056-Dg03?utm_source=share&utm_medium=member_desktop)|
+|07.11.2024|#Aufwachfrage: What do you draw hope from in dark times?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-aufwachfrage-activity-7260192014049099777-qXTi?utm_source=share&utm_medium=member_desktop)|
+|06.11.2024|#Aufwachfrage: Is there such a thing as “positive sarcasm”?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7259830581771874305-X4Yw?utm_source=share&utm_medium=member_desktop)|
 |31.10.2024|#Aufwachfrage: How do you find your direction?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7257667915703894017-8rYQ?utm_source=share&utm_medium=member_desktop)|
 |29.10.2024|#Aufwachfrage: Can ethical behavior and capitalism actually coexist?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7256931123467841536-u6D5?utm_source=share&utm_medium=member_desktop)|
 |28.10.2024|#Aufwachfrage: What AI policy do you wish for from your CEO?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7256568174291177472-Dpdp?utm_source=share&utm_medium=member_desktop)|
