@@ -61,10 +61,27 @@ Feedback and ideas are very welcome to Udo via [LinkedIn](https://www.linkedin.c
 ---
 
 
+
 ## Archiv aller Aufwachfragen / The all-time archive of all Aufwachfragen
 
 |Datum|Aufwachfrage|Thread on X/LinkedIn|
 |---|---|---|
+|04.12.2024|#Aufwachfrage: What is the difference between idealism and naivety?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7269971253115965440-r38r?utm_source=share&utm_medium=member_desktop)|
+|03.12.2024|#Aufwachfrage: Are you more certain or less certain that you are right, compared to your younger self?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7269588316071645184-TbE4?utm_source=share&utm_medium=member_desktop)|
+|28.11.2024|#Aufwachfrage: What role does fun play in your work day? (I don't mean the joy of work, but nonsense, jokes, silliness, laughter and wacky actions.)|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7267800792210759680-Ewtu?utm_source=share&utm_medium=member_desktop)|
+|27.11.2024|#Aufwachfrage: How do come to forgiving someone? (Assume, that the quick answer "I just forgive" is no option for this Aufwachfrage)|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7267446541278232576-ptc4?utm_source=share&utm_medium=member_desktop)|
+|26.11.2024|#Aufwachfrage: Was ist dir zu Glück egal und was ist dir leider egal?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7267075526228422656-U_N4?utm_source=share&utm_medium=member_desktop)|
+|25.11.2024|#Aufwachfrage: Which purchased item (< 100 EUR/USD) has given you the most extra quality of life? (Inspired by a question from the book "Tribe of Mentors" by Tim Ferriss)|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7266715837330345984-bH4k?utm_source=share&utm_medium=member_desktop)|
+|22.11.2024|#Aufwachfrage: On what topic did you significantly pivot your long-held opinion in recent years?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7265633363045093376-MZGQ?utm_source=share&utm_medium=member_desktop)|
+|21.11.2024|#Aufwachfrage: What nurtures your soul?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7265271208533704704-uYlg?utm_source=share&utm_medium=member_desktop)|
+|20.11.2024|#Aufwachfrage: In what ways did your whole work-from-home experience change since the pandemic?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7264893372039847936-NYT5?utm_source=share&utm_medium=member_desktop)|
+|19.11.2024|#Aufwachfrage: When was the last time you dressed up only for yourself?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7264566376755781632-Ry3B?utm_source=share&utm_medium=member_desktop)|
+|18.11.2024|#Aufwachfrage: How much do you censor yourself on LinkedIn?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7264174688124243969-FcHD?utm_source=share&utm_medium=member_desktop)|
+|15.11.2024|#Aufwachfrage: What was not as bad as expected this week?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7263090040254222336-qY6D?utm_source=share&utm_medium=member_desktop)|
+|14.11.2024|#Aufwachfrage: How do you find out whether your work has real impact?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7262705147150045184-_0RF?utm_source=share&utm_medium=member_desktop)|
+|13.11.2024|#Aufwachfrage: What is the essence of valuable networking for you? (inspired by the Manage Agile today and tomorrow)|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7262361168881573888-rU0j?utm_source=share&utm_medium=member_desktop)|
+|12.11.2024|#Aufwachfrage: What happens (or doesn't happen) on a perfect company Christmas party?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7261995663184343041-j3hO?utm_source=share&utm_medium=member_desktop)|
+|11.11.2024|#Aufwachfrage: When do you usually realize that you have discovered a treasure?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7261623745708986368-86Fn?utm_source=share&utm_medium=member_desktop)|
 |08.11.2024|#Aufwachfrage: How often do you usually hang out with colleagues in your private life?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7260570582671405056-Dg03?utm_source=share&utm_medium=member_desktop)|
 |07.11.2024|#Aufwachfrage: What do you draw hope from in dark times?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-aufwachfrage-activity-7260192014049099777-qXTi?utm_source=share&utm_medium=member_desktop)|
 |06.11.2024|#Aufwachfrage: Is there such a thing as “positive sarcasm”?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7259830581771874305-X4Yw?utm_source=share&utm_medium=member_desktop)|
