@@ -64,6 +64,9 @@ Feedback and ideas are very welcome to Udo via [LinkedIn](https://www.linkedin.c
 
 ## Archiv aller Aufwachfragen / The all-time archive of all Aufwachfragen
 
+- *Neu:*  [Memory Lane: Welche Aufwachfragen gab es zum heutigen Datum in den vergangenen Jahren?](https://kosmonautica.github.io/aufwachfragedestages/historylane.html)
+- *Neu:* [Zufällige Aufwachfrage aus dem Archiv](https://kosmonautica.github.io/aufwachfragedestages/index.html)
+
 |Datum|Aufwachfrage|Thread on X/LinkedIn|
 |---|---|---|
 |04.12.2024|#Aufwachfrage: What is the difference between idealism and naivety?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7269971253115965440-r38r?utm_source=share&utm_medium=member_desktop)|
