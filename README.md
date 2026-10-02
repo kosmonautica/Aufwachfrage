@@ -69,6 +69,7 @@ Feedback and ideas are very welcome to Udo via [LinkedIn](https://www.linkedin.c
 
 |Datum|Aufwachfrage|Thread on X/LinkedIn|
 |---|---|---|
+|02.10.2026|#Aufwachfrage: Was mutest du dir freiwillig zu? Inspiriert durch das Buch "Bequeme neue Welt" von Sibylle Anderl|[LinkedIn](https://lnkd.in/p/eREvt3cc)|
 |04.12.2024|#Aufwachfrage: What is the difference between idealism and naivety?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7269971253115965440-r38r?utm_source=share&utm_medium=member_desktop)|
 |03.12.2024|#Aufwachfrage: Are you more certain or less certain that you are right, compared to your younger self?|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7269588316071645184-TbE4?utm_source=share&utm_medium=member_desktop)|
 |28.11.2024|#Aufwachfrage: What role does fun play in your work day? (I don't mean the joy of work, but nonsense, jokes, silliness, laughter and wacky actions.)|[LinkedIn](https://www.linkedin.com/posts/udowiegaertner_aufwachfrage-activity-7267800792210759680-Ewtu?utm_source=share&utm_medium=member_desktop)|
